@@ -1,2 +1,0 @@
-# tubers-pl
-tubeers polish
