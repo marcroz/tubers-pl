@@ -470,7 +470,7 @@
 | [Cireeliel](https://twitch.tv/Cireeliel) |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>[PL/ENG] Dużo gadam, często od rzeczy, może wpadniesz? (‘-’*) I just talk a lot and play games.  kontakt: cireeliel@gmail.com</span> |
+| <span>Najspokojniejszy i najbardziej zrównoważony głos na twitchu! Vtuberka bez emocji! A tak naprawdę to po prostu sprzedała duszę...</span> |
 | 2019-09-02T12:24:09Z |
 | ![Cireeliel](https://static-cdn.jtvnw.net/jtv_user_pictures/03636bc6-c87d-4726-b956-1bc1d666c43c-profile_image-300x300.png)|
 
@@ -948,7 +948,7 @@
 | <strong>affiliate</strong> |
 | <span>Hello. Nagrywam rysowanko i gry :3</span> |
 | 2023-03-06T20:45:18Z |
-| ![hiteeeeek](https://static-cdn.jtvnw.net/jtv_user_pictures/a3487007-76f0-442e-859f-ebaa401838e1-profile_image-300x300.png)|
+| ![hiteeeeek](https://static-cdn.jtvnw.net/jtv_user_pictures/d56c5f2e-5ddb-4e9e-9732-739a4b04bbf6-profile_image-300x300.png)|
 
 | [Hitomi_Hoshino](https://twitch.tv/Hitomi_Hoshino) |
 | ----- |
@@ -1704,7 +1704,7 @@
 | <strong>affiliate</strong> |
 | <span>Hi!  	♡( ◡‿◡ ) I came here from Neptune... Actually I'm Neptune's daughter HEHE. He said I was a bad girl and he sent me here, on this ugly earth.. NEVERMIND... </span> |
 | 2019-12-10T21:44:25Z |
-| ![MikaKaiosei](https://static-cdn.jtvnw.net/jtv_user_pictures/7ec10da0-cded-4478-a610-db2017f5c923-profile_image-300x300.png)|
+| ![MikaKaiosei](https://static-cdn.jtvnw.net/jtv_user_pictures/5377c05b-14ea-4ec2-953c-d723de2339d2-profile_image-300x300.png)|
 
 | [mikas_premium](https://twitch.tv/mikas_premium) |
 | ----- |
@@ -1845,13 +1845,6 @@
 | <span>Hi~! 🌟I'm Mori the Scarlet Witch ✨ Pre-debut vtuber ✨ Sometimes I stream in Polish! ✨ Hope to see you around ✨ Pfp made by https://twitter.com/MiniErdora</span> |
 | 2015-03-30T13:42:29Z |
 | ![MoriFireWitch](https://static-cdn.jtvnw.net/jtv_user_pictures/b4263833-0c3b-4ce3-8cb1-8eb104fc8fa0-profile_image-300x300.jpeg)|
-
-| [morrinyah](https://twitch.tv/morrinyah) |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>Hello everynyan! Z tej strony Morrigan. Jestem vtuberką streamującą z modelem kociej artystki. Na streamkach klikam w gierki takie jak honkai, genshin, tft, ligunia i tez rysuję! Zapraszam do wspólnej zabawy ze mną i z chatem!</span> |
-| 2021-02-22T06:04:34Z |
-| ![morrinyah](https://static-cdn.jtvnw.net/jtv_user_pictures/96ef4bf6-4046-4aca-a063-a0fed49ca8ed-profile_image-300x300.png)|
 
 | [morrinyah](https://twitch.tv/morrinyah) |
 | ----- |
@@ -2006,6 +1999,13 @@
 | <span>Twój mały koszmarek. Obserwuje twoje sny~</span> |
 | 2016-05-03T10:34:10Z |
 | ![nightmareDeroo](https://static-cdn.jtvnw.net/jtv_user_pictures/bc1498a7-0c5e-45f4-9426-ad070a8dc561-profile_image-300x300.png)|
+
+| [Nilsee_](https://twitch.tv/Nilsee_) |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>Siemka jestem Nilse ale też mówią na mnie Królik :)</span> |
+| 2021-05-08T21:08:57Z |
+| ![Nilsee_](https://static-cdn.jtvnw.net/jtv_user_pictures/acb71da9-4fa8-4e01-96a1-15c51f0c2471-profile_image-300x300.png)|
 
 | [Nishi_Yuuma](https://twitch.tv/Nishi_Yuuma) |
 | ----- |
@@ -2346,7 +2346,7 @@
 | [sebek96vt](https://twitch.tv/sebek96vt) |
 | ----- |
 | <strong>non affiliate</strong> |
-| <span>Witaj. Jestem Sebastian . Mam 27 lat. Na tym kanale będziecie się dobrze bawić z różnych serii. Gry jakie tu będą ogrywane to głównie z PS1 ale też znajdzie się cos z : ETS2 , Phasmofobia, Ghost Watchers i wiele innych. Zapraszam Cię do zostawienia followka :) </span> |
+| <span>Witaj. Jestem Sebastian . Mam 27 lat. Na tym kanale będziecie się dobrze bawić z różnych serii. Gry jakie tu będą ogrywane to głównie Hunt Showdown Genshin Inpact  , Phasmofobia,  i wiele innych. Zapraszam Cię do zostawienia followka :) </span> |
 | 2022-10-16T19:23:19Z |
 | ![sebek96vt](https://static-cdn.jtvnw.net/jtv_user_pictures/6a9f7f64-0303-4d7a-b40c-853c42b6685a-profile_image-300x300.png)|
 
