@@ -131,6 +131,13 @@
 | 2019-03-30T16:18:12Z |
 | ![AlbinoskaVT](https://static-cdn.jtvnw.net/jtv_user_pictures/9016d767-611b-483b-929d-9c4b0be81c51-profile_image-300x300.png)|
 
+| [alexyuhi](https://twitch.tv/alexyuhi) |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>Your ancient, immortal houseplant ! Please water me and hang out with me !</span> |
+| 2020-01-09T18:36:26Z |
+| ![alexyuhi](https://static-cdn.jtvnw.net/jtv_user_pictures/959641b0-7a9a-476e-8093-ad51157b3679-profile_image-300x300.png)|
+
 | [Allystria_](https://twitch.tv/Allystria_) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -2000,6 +2007,13 @@
 | 2016-05-03T10:34:10Z |
 | ![nightmareDeroo](https://static-cdn.jtvnw.net/jtv_user_pictures/bc1498a7-0c5e-45f4-9426-ad070a8dc561-profile_image-300x300.png)|
 
+| [nikolciavt](https://twitch.tv/nikolciavt) |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>Hejka! Jestem Nikola, mała streamerka z chorym poczuciem humoru. Wielbicielka pokemonów, azjatyckiej kultury i muzyki. Mam nadzieję że będziemy się razem dobrze bawić ;3</span> |
+| 2016-01-14T18:24:02Z |
+| ![nikolciavt](https://static-cdn.jtvnw.net/jtv_user_pictures/5480d06a-22e4-4571-8def-30b40d1b1327-profile_image-300x300.png)|
+
 | [Nilsee_](https://twitch.tv/Nilsee_) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -2440,6 +2454,13 @@
 | <span>Just a simple dude, wasting time and money on games~</span> |
 | 2015-08-02T23:06:29Z |
 | ![ShiroKomao](https://static-cdn.jtvnw.net/jtv_user_pictures/8c936108-e72d-453e-91c0-2c47f2d791c3-profile_image-300x300.png)|
+
+| [Shosagi_](https://twitch.tv/Shosagi_) |
+| ----- |
+| <strong>affiliate</strong> |
+| <span></span> |
+| 2020-11-25T09:51:36Z |
+| ![Shosagi_](https://static-cdn.jtvnw.net/jtv_user_pictures/ec238fc7-ea0e-4c6c-8953-3e34b3bd773a-profile_image-300x300.png)|
 
 | [silaksa](https://twitch.tv/silaksa) |
 | ----- |
