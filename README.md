@@ -2077,6 +2077,13 @@
 | 2022-04-24T18:30:50Z |
 | ![oHideko](https://static-cdn.jtvnw.net/jtv_user_pictures/53b3a5db-9bd9-47a9-ba7f-673b60fa5b09-profile_image-300x300.png)|
 
+| [okaree](https://twitch.tv/okaree) |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>sheep</span> |
+| 2020-08-30T13:52:19Z |
+| ![okaree](https://static-cdn.jtvnw.net/jtv_user_pictures/729b43b3-568e-46c5-bdc2-cb618fd72cf0-profile_image-300x300.png)|
+
 | [olsabolla](https://twitch.tv/olsabolla) |
 | ----- |
 | <strong>non affiliate</strong> |
@@ -2798,6 +2805,13 @@
 | 2020-09-05T11:35:34Z |
 | ![Tunrunn](https://static-cdn.jtvnw.net/jtv_user_pictures/ae6241c8-60b5-49ad-b4c2-c6617faf212c-profile_image-300x300.png)|
 
+| [Tunrunn](https://twitch.tv/Tunrunn) |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>Streamuję proces tworzenia komiksów słuchając darcia mordy :))</span> |
+| 2020-09-05T11:35:34Z |
+| ![Tunrunn](https://static-cdn.jtvnw.net/jtv_user_pictures/ae6241c8-60b5-49ad-b4c2-c6617faf212c-profile_image-300x300.png)|
+
 | [Tyski](https://twitch.tv/Tyski) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -3035,6 +3049,13 @@
 | <span>Kocham mężczyzn</span> |
 | 2021-05-20T22:26:52Z |
 | ![xKvamil](https://static-cdn.jtvnw.net/jtv_user_pictures/f185318d-1da8-4e52-a36d-5420108940c6-profile_image-300x300.png)|
+
+| [xmyszaxvt](https://twitch.tv/xmyszaxvt) |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>Grywam sobie w gierki Jestem w nie totalną Pepegą, jednak sie tym nie przejmuje. Jestem Nie-binarna osóbką, używam damskich zaimków iii jakos leci! :D</span> |
+| 2021-11-07T09:45:08Z |
+| ![xmyszaxvt](https://static-cdn.jtvnw.net/jtv_user_pictures/73a03834-ce82-4d23-bdad-2e8448ad3f1f-profile_image-300x300.png)|
 
 | [xSaachi](https://twitch.tv/xSaachi) |
 | ----- |
