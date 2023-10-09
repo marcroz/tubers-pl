@@ -145,13 +145,6 @@
 | 20.10.2022, 21:33:21 |
 | ![Allystria_](https://static-cdn.jtvnw.net/jtv_user_pictures/8662fefa-dade-4102-97e4-f412a42ab0ee-profile_image-300x300.png)|
 
-| [alphavt](https://twitch.tv/alphavt) |
-| ----- |
-| <strong>non affiliate</strong> |
-| <span></span> |
-| 14.09.2018, 09:02:08 |
-| ![alphavt](https://static-cdn.jtvnw.net/user-default-pictures-uv/ebe4cd89-b4f4-4cd9-adac-2f30151b4209-profile_image-300x300.png)|
-
 | [AlphaVT_](https://twitch.tv/AlphaVT_) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -178,7 +171,7 @@
 | <strong>affiliate</strong> |
 | <span>Letsgooo, comfy streaming ૮ ˶ᵔ ᵕ ᵔ˶ ა</span> |
 | 11.10.2020, 17:54:26 |
-| ![Amdylt](https://static-cdn.jtvnw.net/jtv_user_pictures/bf8e2ef6-3a4e-4664-9ffe-08341fbdb576-profile_image-300x300.png)|
+| ![Amdylt](https://cdn.discordapp.com/attachments/989095141874749470/1161000677946970295/image.png)|
 
 | [andusia](https://twitch.tv/andusia) |
 | ----- |
@@ -558,13 +551,6 @@
 | 23.12.2011, 20:39:46 |
 | ![Davidb9310](https://static-cdn.jtvnw.net/jtv_user_pictures/5d5140a8-1e83-4a12-97e7-5947ca764684-profile_image-300x300.png)|
 
-| [DawanDStreamuje](https://twitch.tv/DawanDStreamuje) |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>WITAM SERDECZNIE JESTEM DAWAND MAM 20 LAT JESTEM JEDNYM Z EKIPY ❤️DKM_SQUAD❤️ KTÓRY JEŹDZI PO ZLOTACH CHARYTATYWNYCH CZY TEŻ OGÓLNYCH. ZAPRASZAM NA NASZE SOCIAL MEDIE NA KTÓRYCH SĄ INFORMACJE</span> |
-| 3.06.2019, 14:03:32 |
-| ![DawanDStreamuje](https://static-cdn.jtvnw.net/jtv_user_pictures/930723ef-99e8-4858-8da2-be4efcfd5b3e-profile_image-300x300.jpeg)|
-
 | [deiffol](https://twitch.tv/deiffol) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -584,7 +570,7 @@
 | <strong>partner</strong> |
 | <span>Damski degenerat o głosie wykastrowanego chłopca</span> |
 | 13.12.2020, 10:27:52 |
-| ![Deucel](https://static-cdn.jtvnw.net/jtv_user_pictures/954baf0b-3de0-4771-b39d-7320fd510f28-profile_image-300x300.png)|
+| ![Deucel](https://cdn.discordapp.com/attachments/989095141874749470/1161001524789522564/image.png)|
 
 | [Devil___Eye](https://twitch.tv/Devil___Eye) |
 | ----- |
@@ -752,7 +738,7 @@
 | <strong>non affiliate</strong> |
 | <span>Welcome to the Q! I'm ezQuiet, a corporate-bound kuudere who just wants to be a hikineet.</span> |
 | 19.02.2012, 05:54:22 |
-| ![ezQuiet](https://static-cdn.jtvnw.net/jtv_user_pictures/d95a02cd-4699-4ed6-a637-0d1c0129ba78-profile_image-300x300.png)|
+| ![ezQuiet](https://cdn.discordapp.com/attachments/989095141874749470/1160991948442706020/image.png)|
 
 | [FaerinVT](https://twitch.tv/FaerinVT) |
 | ----- |
@@ -815,7 +801,7 @@
 | <strong>non affiliate</strong> |
 | <span></span> |
 | 3.10.2022, 17:19:36 |
-| ![frytonur](https://static-cdn.jtvnw.net/user-default-pictures-uv/de130ab0-def7-11e9-b668-784f43822e80-profile_image-300x300.png)|
+| ![frytonur](https://media.discordapp.net/attachments/989095141874749470/1160994816809771058/image.png)|
 
 | [fukohihi](https://twitch.tv/fukohihi) |
 | ----- |
@@ -1181,13 +1167,6 @@
 | 15.03.2020, 13:28:17 |
 | ![Kameleoska](https://static-cdn.jtvnw.net/jtv_user_pictures/c70cb9b8-666b-4e47-b2dc-dfe53f6c82e2-profile_image-300x300.png)|
 
-| [Kamemuri](https://twitch.tv/Kamemuri) |
-| ----- |
-| <strong>non affiliate</strong> |
-| <span>Twój sympatyczny wirtualny streamer, zawsze w tym samym miejscu :) - Zaprasza do wspólnego grania i rozmów.</span> |
-| 19.12.2018, 22:56:16 |
-| ![Kamemuri](https://static-cdn.jtvnw.net/jtv_user_pictures/ffeaa0da-5417-41c2-a977-563940dae281-profile_image-300x300.png)|
-
 | [kamzok](https://twitch.tv/kamzok) |
 | ----- |
 | <strong>non affiliate</strong> |
@@ -1229,13 +1208,6 @@
 | <span>Hewoo i'm Karu PL/EN pngtuber I don't have a schedule and i stream i whenever i feel like it i am cwinge and i like learning languages right now I'm learning Russian hope you have a good time watching me and I wish you a wonderful day</span> |
 | 2.03.2020, 08:22:28 |
 | ![Karu_Dorifto](https://static-cdn.jtvnw.net/jtv_user_pictures/02994e81-5c6b-4e73-ad0a-890ced622b51-profile_image-300x300.png)|
-
-| [Kasaczek](https://twitch.tv/Kasaczek) |
-| ----- |
-| <strong>partner</strong> |
-| <span>Opis na panel informacyjny strony kanału – mniej niż 300 znaków</span> |
-| 29.12.2019, 22:25:13 |
-| ![Kasaczek](https://static-cdn.jtvnw.net/jtv_user_pictures/cac7f868-1cff-4533-9d66-784184bcd526-profile_image-300x300.png)|
 
 | [Katsu_Miyoga](https://twitch.tv/Katsu_Miyoga) |
 | ----- |
@@ -1494,7 +1466,7 @@
 | <strong>affiliate</strong> |
 | <span>Something new is coming...</span> |
 | 6.05.2020, 13:58:45 |
-| ![LeeKrissu](https://static-cdn.jtvnw.net/jtv_user_pictures/ccc61c90-39ec-4da5-af4a-84961d7e6f17-profile_image-300x300.png)|
+| ![LeeKrissu](https://yt3.googleusercontent.com/TWS6vpAPWlEA_Si0UPPKRefGYRtgkhM-QwMhrDJfNeGJgn8UNUM9L3ynKldqvSwl7yLPcBJjOg=s176-c-k-c0x00ffffff-no-rj)|
 
 | [Lenilack](https://twitch.tv/Lenilack) |
 | ----- |
@@ -2194,7 +2166,7 @@
 | <strong>affiliate</strong> |
 | <span>Hejka nazywam się Paweł. Mam nadzieje że będziesz się tu dobrze bawić :D</span> |
 | 2.08.2018, 18:40:52 |
-| ![Paweelo4](https://static-cdn.jtvnw.net/jtv_user_pictures/3148f19a-079a-4ce6-ba24-2ca9e76c681f-profile_image-300x300.png)|
+| ![Paweelo4](https://cdn.discordapp.com/attachments/989095141874749470/1160997536912392212/image.png)|
 
 | [PeGie255](https://twitch.tv/PeGie255) |
 | ----- |
@@ -3083,7 +3055,7 @@
 | <strong>non affiliate</strong> |
 | <span>Jestem Ola czasami sobie streamuje. Kiedyś nagrywałam straszne historie na YT, a dziś próbuje swoich sił na tłiczu. Gram w najnowsze gry i też te starsze. Czasem pogadam coś śmiesznego. </span> |
 | 31.03.2020, 15:18:22 |
-| ![X44NDI](https://static-cdn.jtvnw.net/jtv_user_pictures/0ab2c4cc-0c1b-4347-a506-b40109ca0f23-profile_image-300x300.jpeg)|
+| ![X44NDI](https://cdn.discordapp.com/attachments/989095141874749470/1161003348254797925/image.png)|
 
 | [xChinczyKK7](https://twitch.tv/xChinczyKK7) |
 | ----- |
@@ -3160,7 +3132,7 @@
 | <strong>non affiliate</strong> |
 | <span>Hejka! Nazywam się Julia i właśnie zaczęłam swoją przygodę z twitchem! Moim hobby jest rysowanie a największym talentem to brak umiejętności grania w gry XD (Z czego właśnie streamuję!) Jeżeli masz ochotę pogadać bądź razem pograć to zapraszam po trochę humoru ;D</span> |
 | 19.11.2019, 18:26:58 |
-| ![Yaimizu](https://static-cdn.jtvnw.net/jtv_user_pictures/334ad5dc-a5d5-494d-a0eb-d79c84a98550-profile_image-300x300.jpeg)|
+| ![Yaimizu](https://cdn.discordapp.com/attachments/989095141874749470/1160997891410755736/image.png)|
 
 | [Yarukichan](https://twitch.tv/Yarukichan) |
 | ----- |
@@ -3188,7 +3160,7 @@
 | <strong>non affiliate</strong> |
 | <span></span> |
 | 1.07.2021, 21:36:01 |
-| ![Yomimi_NadeNade](https://static-cdn.jtvnw.net/user-default-pictures-uv/dbdc9198-def8-11e9-8681-784f43822e80-profile_image-300x300.png)|
+| ![Yomimi_NadeNade](https://cdn.discordapp.com/attachments/989095141874749470/1160998212870607041/image.png)|
 
 | [yuil_senpai](https://twitch.tv/yuil_senpai) |
 | ----- |
