@@ -52,7 +52,7 @@
 | <strong>affiliate</strong> |
 | <span></span> |
 | 26.08.2022, 10:47:06 |
-| ![Aeshir](https://static-cdn.jtvnw.net/jtv_user_pictures/48650de9-931e-4847-b05d-3dd276a78838-profile_image-300x300.png)|
+| ![Aeshir](https://pbs.twimg.com/profile_images/1680633748096790532/fau7I0cW.jpg)|
 
 | [Agnes_arts_](https://twitch.tv/Agnes_arts_) |
 | ----- |
@@ -369,6 +369,13 @@
 | 3.03.2012, 16:55:30 |
 | ![BlackReven](https://static-cdn.jtvnw.net/jtv_user_pictures/ff0f6a8a-24ea-42f3-8c98-168622af60f0-profile_image-300x300.png)|
 
+| [blackskyen](https://twitch.tv/blackskyen) |
+| ----- |
+| <strong>non affiliate</strong> |
+| <span></span> |
+| 3.04.2020, 23:31:18 |
+| ![blackskyen](https://static-cdn.jtvnw.net/jtv_user_pictures/02974079-7e75-41ca-a54c-7b6aa0b9ff0a-profile_image-300x300.png)|
+
 | [blaspyVT](https://twitch.tv/blaspyVT) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -382,6 +389,13 @@
 | <span>Yoo witam, jestem Elfim królem zreinkarnowanym w innym świecie </span> |
 | 30.09.2017, 20:39:58 |
 | ![BlondiiVT](https://static-cdn.jtvnw.net/jtv_user_pictures/14d69ffa-4c73-4fe3-b684-46af0c0ed3cc-profile_image-300x300.png)|
+
+| [bozydaarr](https://twitch.tv/bozydaarr) |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>Bonjour, miło że jesteś tutaj ^^ </span> |
+| 20.09.2019, 21:56:53 |
+| ![bozydaarr](https://static-cdn.jtvnw.net/jtv_user_pictures/fa27e304-3f9e-40de-a802-35474766ea28-profile_image-300x300.png)|
 
 | [BroccoliPestoo](https://twitch.tv/BroccoliPestoo) |
 | ----- |
@@ -1237,6 +1251,13 @@
 | 2.06.2022, 17:05:43 |
 | ![Keemao_](https://static-cdn.jtvnw.net/jtv_user_pictures/fb49880b-246a-4a1a-8f22-ae6930ace922-profile_image-300x300.png)|
 
+| [keinvt](https://twitch.tv/keinvt) |
+| ----- |
+| <strong>non affiliate</strong> |
+| <span>siema jestem keinvt i jestem synem władcy demonów oraz księciem </span> |
+| 15.08.2020, 11:44:26 |
+| ![keinvt](https://static-cdn.jtvnw.net/jtv_user_pictures/7e9eb4c1-4946-4a93-a573-edcca15f2be9-profile_image-300x300.png)|
+
 | [Ken_Majin_VT](https://twitch.tv/Ken_Majin_VT) |
 | ----- |
 | <strong>non affiliate</strong> |
@@ -1292,6 +1313,13 @@
 | <span>Chaotic good.  Living in  Poland. I love games, comicbooks, fantasy worlds, and animals. I have lovely cat named Tosiu. I sympathize with people who are discriminated or bullied and always try to help. Also swear like an old sailor when angry playing dbd xD Hates: injustice, sun and bugs</span> |
 | 13.11.2019, 20:36:36 |
 | ![kitty_lovecraft](https://static-cdn.jtvnw.net/jtv_user_pictures/31969e87-afd5-42d2-aaa5-0becd10e6e5c-profile_image-300x300.png)|
+
+| [klaudiavxv](https://twitch.tv/klaudiavxv) |
+| ----- |
+| <strong>non affiliate</strong> |
+| <span>hot 20DONATE(paypal):lotor47@inetria.pl</span> |
+| 9.10.2023, 17:26:27 |
+| ![klaudiavxv](https://static-cdn.jtvnw.net/jtv_user_pictures/590c357a-3c8f-47d7-bb9e-884c3570794b-profile_image-300x300.png)|
 
 | [Koiwhyy](https://twitch.tv/Koiwhyy) |
 | ----- |
@@ -1482,12 +1510,26 @@
 | 3.03.2017, 23:45:21 |
 | ![Lex0nibi](https://static-cdn.jtvnw.net/jtv_user_pictures/15ebb01c-e98b-40c1-b040-18e5f388012f-profile_image-300x300.png)|
 
+| [Leyzi_VT](https://twitch.tv/Leyzi_VT) |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>Hej! Gram głównie w lola, uwielbiam tematy cyberpunkowe i sci-fi(mass effect 💕), trochę też stara simsiara, poza tym rysuje, robię grafikę i modele VT, a w życiu codziennym prowadzę tramwaj i staram się ogarniać życie, zapraszam 🥳</span> |
+| 30.08.2022, 15:55:01 |
+| ![Leyzi_VT](https://static-cdn.jtvnw.net/jtv_user_pictures/ffc9ee28-436d-4eab-9b9e-335117420b58-profile_image-300x300.png)|
+
 | [Licoya_TheDragonMommy](https://twitch.tv/Licoya_TheDragonMommy) |
 | ----- |
 | <strong>affiliate</strong> |
 | <span>Cześć, tutaj gamerka z doświadczeniem oraz początkująca twórczyni, przysiądź się i pogadaj!</span> |
 | 6.03.2018, 22:29:31 |
 | ![Licoya_TheDragonMommy](https://static-cdn.jtvnw.net/jtv_user_pictures/2c99bde5-3340-4e68-9c78-cdae7e747ff6-profile_image-300x300.png)|
+
+| [Lintherka](https://twitch.tv/Lintherka) |
+| ----- |
+| <strong>non affiliate</strong> |
+| <span>Comfy streamy z nawiedzonego statku pośrodku kosmosu. Tutaj każdy jest mile widziany.</span> |
+| 4.10.2016, 19:25:11 |
+| ![Lintherka](https://static-cdn.jtvnw.net/jtv_user_pictures/e7bef954-9440-4c32-8a81-6be2e4f27635-profile_image-300x300.png)|
 
 | [Lise_Q](https://twitch.tv/Lise_Q) |
 | ----- |
@@ -1916,6 +1958,13 @@
 | 23.04.2021, 15:31:16 |
 | ![NadeNadeGuild](https://static-cdn.jtvnw.net/jtv_user_pictures/03f1e1af-a3d7-43c4-9cbc-3153c6f7c789-profile_image-300x300.png)|
 
+| [namidanobaka](https://twitch.tv/namidanobaka) |
+| ----- |
+| <strong>partner</strong> |
+| <span>Hi there!       Oh boy you're so lost! Let me show you the way~! Oh and yes I have ADHD and there is a big chance im lost too....</span> |
+| 18.04.2014, 22:00:50 |
+| ![namidanobaka](https://static-cdn.jtvnw.net/jtv_user_pictures/bd2d4e6e-b730-42c0-92b9-d4ce02f72485-profile_image-300x300.png)|
+
 | [nano__777](https://twitch.tv/nano__777) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -2224,6 +2273,13 @@
 | 8.10.2017, 19:03:21 |
 | ![QueenofPastelHearts](https://static-cdn.jtvnw.net/jtv_user_pictures/147238d0-a1b4-48f9-9fc3-7b284af75d24-profile_image-300x300.png)|
 
+| [qwerdylex](https://twitch.tv/qwerdylex) |
+| ----- |
+| <strong>non affiliate</strong> |
+| <span>Witam, jestem Qwerdylex, ale osoby, które lepiej mnie znają, nazywają mnie tak na miarę potrzeb. Od kilku lat zagłębiam się w świat gier RPG zarówno od strony gracza jak i Mistrza Gry, głównie w tematyce fantasy. Jestem przeciętnym graczem oraz nie przeciętnym fanem anime/mangi.</span> |
+| 14.08.2018, 18:32:16 |
+| ![qwerdylex](https://static-cdn.jtvnw.net/jtv_user_pictures/22a89fa5-89d3-4a56-aa29-f1157621cabd-profile_image-300x300.png)|
+
 | [R4vuc](https://twitch.tv/R4vuc) |
 | ----- |
 | <strong>non affiliate</strong> |
@@ -2475,6 +2531,13 @@
 | <span>Yo, I am a person who likes rhythm games and for Christmas 2021 I managed to Rank my first map in the game : osu!</span> |
 | 11.12.2019, 18:36:45 |
 | ![SilverYako](https://static-cdn.jtvnw.net/jtv_user_pictures/91b53bbc-5009-4609-9c68-4a3a12504b2d-profile_image-300x300.png)|
+
+| [SiopeR](https://twitch.tv/SiopeR) |
+| ----- |
+| <strong>non affiliate</strong> |
+| <span></span> |
+| 7.03.2012, 13:12:56 |
+| ![SiopeR](https://static-cdn.jtvnw.net/jtv_user_pictures/fc7423d2-113e-4b6c-b335-6f2e8e274f66-profile_image-300x300.png)|
 
 | [SkyeClovis](https://twitch.tv/SkyeClovis) |
 | ----- |
@@ -2805,6 +2868,13 @@
 | 5.09.2020, 13:35:34 |
 | ![Tunrunn](https://static-cdn.jtvnw.net/jtv_user_pictures/ae6241c8-60b5-49ad-b4c2-c6617faf212c-profile_image-300x300.png)|
 
+| [tvD3STY](https://twitch.tv/tvD3STY) |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>Siemano, D3STY z tej strony i witam na moim kanale. Początkujący VTUBER, głównie znajdziecie u mnie Honkai SR, Ligę Legend oraz Diablo, gram także w wiele innych tytułów, także pytajcie jeśli was to interesuje. Zapraszam do zostania u mnie na dłużej ^.^ współpraca/business: destutwitch@gmail.com</span> |
+| 5.03.2016, 18:55:53 |
+| ![tvD3STY](https://static-cdn.jtvnw.net/jtv_user_pictures/b2ebd20a-2de4-498b-b13f-b998bd9a4379-profile_image-300x300.png)|
+
 | [Tyski](https://twitch.tv/Tyski) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -3008,6 +3078,13 @@
 | 4.02.2019, 16:00:18 |
 | ![WujekBrajan](https://static-cdn.jtvnw.net/jtv_user_pictures/0a8f7e99-2703-43dc-8649-a1d59c15f957-profile_image-300x300.png)|
 
+| [X44NDI](https://twitch.tv/X44NDI) |
+| ----- |
+| <strong>non affiliate</strong> |
+| <span>Jestem Ola czasami sobie streamuje. Kiedyś nagrywałam straszne historie na YT, a dziś próbuje swoich sił na tłiczu. Gram w najnowsze gry i też te starsze. Czasem pogadam coś śmiesznego. </span> |
+| 31.03.2020, 15:18:22 |
+| ![X44NDI](https://static-cdn.jtvnw.net/jtv_user_pictures/0ab2c4cc-0c1b-4347-a506-b40109ca0f23-profile_image-300x300.jpeg)|
+
 | [xChinczyKK7](https://twitch.tv/xChinczyKK7) |
 | ----- |
 | <strong>non affiliate</strong> |
@@ -3035,6 +3112,13 @@
 | <span>Siemanko jestem Kireii staram się robić wszystko na raz, ale różnie wychodzi! Streamki staram się robić co drugi dzień.</span> |
 | 11.08.2017, 12:04:40 |
 | ![xKireii](https://static-cdn.jtvnw.net/jtv_user_pictures/9002ca87-c4c4-43fe-a229-004b3e5223e0-profile_image-300x300.png)|
+
+| [xKitafox](https://twitch.tv/xKitafox) |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>Tak. To ja jestem tym graczem co gra solo w gry multiplayer </span> |
+| 15.02.2020, 16:58:41 |
+| ![xKitafox](https://static-cdn.jtvnw.net/jtv_user_pictures/8292acfd-ed48-40d8-8742-8a456b737920-profile_image-300x300.png)|
 
 | [xKvamil](https://twitch.tv/xKvamil) |
 | ----- |
@@ -3158,7 +3242,7 @@
 | [ZiPeK25](https://twitch.tv/ZiPeK25) |
 | ----- |
 | <strong>non affiliate</strong> |
-| <span>Witam na moim kanale. Staram się stremować co 2 dzień i gram w różne gry. Przepraszam za jakość i ścinki, mam internet radiowy 50Mb/s i dość już przestarzały komputer, Mam nadzieję, że mimo to będziesz się dobrze bawił(a). Zapraszam też na mój główny kanał na YouTube.</span> |
+| <span>Witam na moim kanale na którym gram w różne gry. Przepraszam za jakość i ścinki, mam internet radiowy 50Mb/s i dość już przestarzały komputer, Mam nadzieję, że mimo to będziesz się dobrze bawił(a). Zapraszam też na mój główny kanał na YouTube.</span> |
 | 15.07.2012, 23:18:46 |
 | ![ZiPeK25](https://static-cdn.jtvnw.net/jtv_user_pictures/5fde6e31-c737-466b-9976-474b16c811f4-profile_image-300x300.png)|
 
