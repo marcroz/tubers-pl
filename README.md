@@ -203,14 +203,6 @@
 | <strong>[Discord](https://discord.gg/x6UzsP5Gcg) [Tiktok](https://www.tiktok.com/@andusia) [Andusia.tipo](https://andusia.tipo.live/) [Instagram](https://www.instagram.com/partycrash3r/) [Youtube](https://www.youtube.com/channel/UCnyUJST4cplvRCIbMQqXqRQ)  </strong> |
 | ![andusia](https://static-cdn.jtvnw.net/jtv_user_pictures/0d0e3088-04cf-4955-b85f-0012defc917a-profile_image-300x300.png)|
 
-| [Annfoo](https://twitch.tv/Annfoo) |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>annfoo.biznes@gmail.com </span> |
-| 16.02.2018, 17:31:49 |
-| <strong>[Instagram](https://www.instagram.com/annfoo_art) [Discord](https://discord.com/invite/DmD9UcZ) [Twitter](https://twitter.com/annfoo_art)  </strong> |
-| ![Annfoo](https://static-cdn.jtvnw.net/jtv_user_pictures/97a21bd4-86f7-49ce-9968-5362bb0f6f67-profile_image-300x300.png)|
-
 | [AnxiousBeanVT](https://twitch.tv/AnxiousBeanVT) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -360,14 +352,6 @@
 | <strong>[Twitter](https://twitter.com/Basil_Klicka) [Youtube](https://www.youtube.com/channel/UC4_27QoesPVmvm3zT3uZkGQ)  </strong> |
 | ![Basildisco](https://static-cdn.jtvnw.net/jtv_user_pictures/ad0429d3-7931-4891-be58-76107d3f8c4a-profile_image-300x300.png)|
 
-| [BasTrowy](https://twitch.tv/BasTrowy) |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>Siemanko jestem Bastro aka Basia, gruchacz i zjadacz chleba! Contact : Bastrowy@gmail.com</span> |
-| 1.01.2021, 19:31:44 |
-| <strong>[Discord](https://discord.com/invite/Rd3gDGuWTK) [Twitter](https://twitter.com/BasTrowy) [Youtube](https://www.youtube.com/channel/UCiUpk945LUtu7TDQ47GZ2lw) [Tiktok](https://www.tiktok.com/@bastrowy) [Streamlabs](https://streamlabs.com/bastrowy/tip)  </strong> |
-| ![BasTrowy](https://static-cdn.jtvnw.net/jtv_user_pictures/8b1aa426-737b-48e5-9cb6-7f67c096df16-profile_image-300x300.png)|
-
 | [BerryKira](https://twitch.tv/BerryKira) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -482,7 +466,7 @@
 | <span>Cześć wam, mój zacny pseudonim to Ccp90. Dużo swojego czasu poświęcam na granie w gry. Głównie MMORPGi i Liga, mam też w planach zdobywać wszystkie achivmenty w single playerowych grach na streamie.</span> |
 | 29.03.2015, 19:37:21 |
 | <strong>[Discord](https://discord.gg/XWwJGae52Y) [Twitter](https://twitter.com/Ccp90VT) [Youtube](https://www.youtube.com/channel/UCw7Yh7q1c91TOFm9Bn5VQuQ) [Tiktok](https://www.tiktok.com/@ccp90) [Linktr](https://linktr.ee/ccp90)  </strong> |
-| ![Ccp90](https://static-cdn.jtvnw.net/jtv_user_pictures/7954e295-03de-4411-8c27-2c9d2faf0cc2-profile_image-300x300.png)|
+| ![Ccp90](https://cdn.discordapp.com/attachments/989095141874749470/1162036900954132595/image.png)|
 
 | [ChappyCherri](https://twitch.tv/ChappyCherri) |
 | ----- |
@@ -625,7 +609,7 @@
 | <span>👹ten wstydliwy VTuber 👹</span> |
 | 1.07.2015, 13:21:59 |
 | <strong>[Youtube](https://www.youtube.com/c/deiffol/videos?view_as=subscriber) [Twitter](https://twitter.com/deiffol)  </strong> |
-| ![deiffol](https://static-cdn.jtvnw.net/jtv_user_pictures/14129830-f817-43cd-8d82-4d69cd09f61a-profile_image-300x300.png)|
+| ![deiffol](https://cdn.discordapp.com/attachments/989095141874749470/1162037206463041647/image.png)|
 
 | [DeltaZeroPLVT](https://twitch.tv/DeltaZeroPLVT) |
 | ----- |
@@ -750,6 +734,7 @@
 | <strong>non affiliate</strong> |
 | <span></span> |
 | 6.03.2021, 12:57:37 |
+| <strong>[Youtube](https://www.youtube.com/channel/UCLtmIsTASfrY0JZxjdSbQcA)  </strong> |
 | ![Duella_](https://static-cdn.jtvnw.net/jtv_user_pictures/ed527335-30c0-4d1c-ab44-adf95fad493a-profile_image-300x300.png)|
 
 | [DumDemon_Keira](https://twitch.tv/DumDemon_Keira) |
@@ -1291,6 +1276,7 @@
 | <strong>non affiliate</strong> |
 | <span>Lazy artist drawing anime girls</span> |
 | 14.03.2023, 14:29:32 |
+| <strong>[Twitter](https://twitter.com/juuNuki_) [Instagram](https://www.instagram.com/juunuki/) [Juunuki.carrd](https://juunuki.carrd.co/) [Linktr](https://linktr.ee/juunuki)  </strong> |
 | ![juunuki](https://static-cdn.jtvnw.net/jtv_user_pictures/8eedd9d4-892a-4cb0-b411-a4ec2ca1b853-profile_image-300x300.png)|
 
 | [K0RNER_TV](https://twitch.tv/K0RNER_TV) |
@@ -1771,7 +1757,7 @@
 | <span>Najczęściej gram w gry i rozmawiam z widzami. Próbuję też swoich sił w cosplay'u!  🌸  Miłej zabawy i mam nadzieję, że zostaniesz na dłużej! 🌸</span> |
 | 8.02.2018, 14:21:54 |
 | <strong>[Instagram](https://www.instagram.com/lukrecjaangela/?hl=pl) [Discord](https://discord.gg/r8B3BTW) [Twitter](https://twitter.com/LukrecjaAngela) [Tiktok](https://www.tiktok.com/@lukrecjaangela?lang=pl-PL) [Streamelements](https://streamelements.com/lukrecjaangela/tip)  </strong> |
-| ![LukrecjaAngela](https://static-cdn.jtvnw.net/jtv_user_pictures/16eea3f2-f668-49c3-9c18-a8fe2ac3ac6d-profile_image-300x300.png)|
+| ![LukrecjaAngela](https://panels.twitch.tv/panel-195354199-image-56a0be5e-c318-4626-a33a-923de29c2cd0)|
 
 | [LunisTheMoon](https://twitch.tv/LunisTheMoon) |
 | ----- |
@@ -2117,7 +2103,7 @@
 | <strong>affiliate</strong> |
 | <span>Hello everynyan! Z tej strony Morrigan. Jestem vtuberką streamującą z modelem kociej artystki. Na streamkach klikam w gierki takie jak honkai, genshin, tft, ligunia i tez rysuję! Zapraszam do wspólnej zabawy ze mną i z chatem!</span> |
 | 22.02.2021, 07:04:34 |
-| <strong>[Discord](https://discord.gg/yjUYQJef4P) [Twitter](https://twitter.com/morrinyahVT)  </strong> |
+| <strong>[Discord](https://discord.gg/yjUYQJef4P) [Twitter](https://twitter.com/morrinyahVT) [Trello](https://trello.com/b/9coDnp3m/morrinyah-commissions)  </strong> |
 | ![morrinyah](https://static-cdn.jtvnw.net/jtv_user_pictures/96ef4bf6-4046-4aca-a063-a0fed49ca8ed-profile_image-300x300.png)|
 
 | [mrhappy991](https://twitch.tv/mrhappy991) |
@@ -2196,6 +2182,14 @@
 | <span>Pogramy sobie w gierki</span> |
 | 6.10.2021, 17:59:48 |
 | ![nakielkowany](https://static-cdn.jtvnw.net/jtv_user_pictures/da04bada-5c8e-45e1-92c1-8950fa55c7e6-profile_image-300x300.png)|
+
+| [NameLuuxOsu](https://twitch.tv/NameLuuxOsu) |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>Jeśli szukasz komfortowej i bezbekowej strefy internetu to dobrze trafiłeś. - Jestem NameLuux, na streamku skupiam sie na gierce tak samo jak na chacie i odpowiadam każdemu! Streamuje Osu! i w niedalekiej przyszłości również inne gierki</span> |
+| 5.11.2021, 22:25:15 |
+| <strong>[Twitter](https://twitter.com/NameLuux)  </strong> |
+| ![NameLuuxOsu](https://static-cdn.jtvnw.net/jtv_user_pictures/d3843e93-aa2b-4ea8-bc8e-765946d12606-profile_image-300x300.png)|
 
 | [namidanobaka](https://twitch.tv/namidanobaka) |
 | ----- |
@@ -2299,7 +2293,7 @@
 | <span>Twój mały koszmarek. Obserwuje twoje sny~</span> |
 | 3.05.2016, 12:34:10 |
 | <strong>[Twitter](https://twitter.com/nightmareDeroo) [Discord](https://discord.com/invite/6nSdDkUMrb)  </strong> |
-| ![nightmareDeroo](https://static-cdn.jtvnw.net/jtv_user_pictures/bc1498a7-0c5e-45f4-9426-ad070a8dc561-profile_image-300x300.png)|
+| ![nightmareDeroo](https://media.discordapp.net/attachments/989095141874749470/1162038917915234334/image.png)|
 
 | [nikolciavt](https://twitch.tv/nikolciavt) |
 | ----- |
@@ -2339,7 +2333,7 @@
 | <span>siema jestem Nobod [PL/ENG] drawing, gaming and stuff :D</span> |
 | 3.08.2020, 10:44:11 |
 | <strong>[Twitter](https://twitter.com/_JustNobod_)  </strong> |
-| ![nobodydontmatter](https://static-cdn.jtvnw.net/jtv_user_pictures/3b29c345-ebdb-40ac-a824-06f6b91c8377-profile_image-300x300.png)|
+| ![nobodydontmatter](https://cdn.discordapp.com/attachments/989095141874749470/1162039371176890418/image.png)|
 
 | [NoseyNosey](https://twitch.tv/NoseyNosey) |
 | ----- |
@@ -2692,7 +2686,7 @@
 | <strong>affiliate</strong> |
 | <span>Hewlo!! I'm Saura, comfy dinosaur VTuber that enjoys chilling with chat ꈍ ᴗ ꈍ I mostly stream my visual design commissions process, but you can also expect to see variety of games!</span> |
 | 28.08.2022, 20:28:32 |
-| <strong>[Twitter](https://twitter.com/saurawr_) [Discord](https://discord.gg/yDtRN9sMNK) [Youtube](https://www.youtube.com/@saurawr_) [Streamelements](https://streamelements.com/saurawr/tip) [Saurawr](https://saurawr.com/)  </strong> |
+| <strong>[Twitter](https://twitter.com/intent/user?screen_name=saurawr_) [Discord](https://discord.gg/yDtRN9sMNK) [Youtube](https://www.youtube.com/@saurawr_) [Streamelements](https://streamelements.com/saurawr/tip) [Saurawr](https://saurawr.com/)  </strong> |
 | ![saurawr](https://static-cdn.jtvnw.net/jtv_user_pictures/4a2bccd1-6c7d-4af6-94c7-5a07d5b14304-profile_image-300x300.png)|
 
 | [schwi__](https://twitch.tv/schwi__) |
@@ -2869,7 +2863,7 @@
 | <strong>affiliate</strong> |
 | <span>Pykam for fun w dbd i wiele innych gierek, często  jestem zmadowana i intują mnie moje dwa loco kocury i psiak. Plus jestem tak leniwa że gram na łóżku leżakując xD Mam nadzieję że zostaniesz dłużej na kanale! Miłego oglądania:3</span> |
 | 4.08.2023, 18:53:25 |
-| ![SloppySleeperka](https://static-cdn.jtvnw.net/jtv_user_pictures/b5459fd5-7275-4c87-a7a8-0db7a818e666-profile_image-300x300.png)|
+| ![SloppySleeperka](https://cdn.discordapp.com/attachments/989095141874749470/1162039789017636944/image.png)|
 
 | [SlothSixSin](https://twitch.tv/SlothSixSin) |
 | ----- |
@@ -3611,6 +3605,7 @@
 | <strong>affiliate</strong> |
 | <span>Polish Cringe Vtuber</span> |
 | 16.01.2016, 18:33:09 |
+| <strong>[Discord](https://discord.gg/VtXr8sKmqr)  </strong> |
 | ![Yuuki_VR](https://static-cdn.jtvnw.net/jtv_user_pictures/8964096e-2f3b-4151-b246-921e9ed6e636-profile_image-300x300.png)|
 
 | [yuukitsu](https://twitch.tv/yuukitsu) |
