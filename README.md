@@ -1,4 +1,4 @@
-| [10WiktoriQ100](https://twitch.tv/10WiktoriQ100) |
+[| [10WiktoriQ100](https://twitch.tv/10WiktoriQ100) |
 | ----- |
 | <strong>affiliate</strong> |
 | <span>Miła, sympatyczna streamerka, która zwie się Wiktoria! Wbijaj jak chcesz o czymś porozmawiać! </span> |
@@ -3647,3 +3647,4 @@
 | <strong>[Youtube](https://www.youtube.com/channel/UC1Rh9wokRAnJNHYsmO_P4bw) [Instagram.com/_.zuexie_takoizu](https://www.instagram.com/_.zuexie_takoizu._/) [Twitter](https://twitter.com/Zuexie_Takoizu) [Discord](https://discord.gg/kXzwzCbs88) [Discord](https://discord.gg/3f9m7gX6gT)  </strong> |
 | ![zuexie_takoizu](https://static-cdn.jtvnw.net/jtv_user_pictures/009e94d6-ff0b-47d7-a641-3905d77fd376-profile_image-300x300.png)|
 
+](https://github.com/marcroz/tubers-pl)https://github.com/marcroz/tubers-pl
