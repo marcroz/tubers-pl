@@ -1,4 +1,4 @@
-[| [10WiktoriQ100](https://twitch.tv/10WiktoriQ100) |
+| [10WiktoriQ100](https://twitch.tv/10WiktoriQ100) |
 | ----- |
 | <strong>affiliate</strong> |
 | <span>Miła, sympatyczna streamerka, która zwie się Wiktoria! Wbijaj jak chcesz o czymś porozmawiać! </span> |
@@ -1510,6 +1510,13 @@
 | 30.04.2020, 21:53:27 |
 | <strong>[Discord](https://discord.com/invite/JJMbsA3trz) [Tiktok](https://www.tiktok.com/@kotekwaxustv) [Youtube](https://www.youtube.com/channel/UCsNl1r0xBwTJy1xYOClPETg) [Instagram](https://www.instagram.com/kotekwaxus_vt/) [Facebook](https://www.facebook.com/kotekwaxus/)  </strong> |
 | ![KotekWaxus](https://static-cdn.jtvnw.net/jtv_user_pictures/92a49c4a-e740-4488-90f4-d3865807a43d-profile_image-300x300.png)|
+
+| [Kotletowaty_](https://twitch.tv/Kotletowaty_) |
+| ----- |
+| <strong>non affiliate</strong> |
+| <span>Hi I'm a beginning Polish png tuber. I play games like issac, dying light and many more! I plan to stream in the afternoons. That's really it I hope you will enjoy my streams!</span> |
+| 18.12.2019, 23:35:57 |
+| ![Kotletowaty_](https://static-cdn.jtvnw.net/jtv_user_pictures/12c97723-ef93-4ccc-97f5-6c769988102f-profile_image-300x300.png)|
 
 | [kozloskaa](https://twitch.tv/kozloskaa) |
 | ----- |
@@ -3647,4 +3654,3 @@
 | <strong>[Youtube](https://www.youtube.com/channel/UC1Rh9wokRAnJNHYsmO_P4bw) [Instagram.com/_.zuexie_takoizu](https://www.instagram.com/_.zuexie_takoizu._/) [Twitter](https://twitter.com/Zuexie_Takoizu) [Discord](https://discord.gg/kXzwzCbs88) [Discord](https://discord.gg/3f9m7gX6gT)  </strong> |
 | ![zuexie_takoizu](https://static-cdn.jtvnw.net/jtv_user_pictures/009e94d6-ff0b-47d7-a641-3905d77fd376-profile_image-300x300.png)|
 
-](https://github.com/marcroz/tubers-pl)https://github.com/marcroz/tubers-pl
