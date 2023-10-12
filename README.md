@@ -129,7 +129,7 @@
 | <span>[PL/ENG VTUBER] Siemka! Akira Ai, największa fanka drzemek i gier (szczególnie rytmicznych), czasem coś sobie porysuję - w sumie to nie wiem co tutaj robię :'DD</span> |
 | 20.10.2022, 21:31:23 |
 | <strong>[Vgen](https://vgen.co/akiraivt) [Trello](https://trello.com/b/vphTW2HS/commisions-trello) [Twitter](https://twitter.com/akiraivt) [Steamcommunity](https://steamcommunity.com/id/akiraivt/)  </strong> |
-| ![akiraivt](https://static-cdn.jtvnw.net/jtv_user_pictures/07d25a09-1011-477d-905b-c43d30f60ed9-profile_image-300x300.png)|
+| ![akiraivt](https://static-cdn.jtvnw.net/jtv_user_pictures/9afef282-d7d3-42dc-b18a-bd839a838a7f-profile_image-300x300.png)|
 
 | [AlbertFaustVT](https://twitch.tv/AlbertFaustVT) |
 | ----- |
@@ -412,7 +412,7 @@
 | <strong>non affiliate</strong> |
 | <span></span> |
 | 3.04.2020, 23:31:18 |
-| ![blackskyen](https://static-cdn.jtvnw.net/jtv_user_pictures/02974079-7e75-41ca-a54c-7b6aa0b9ff0a-profile_image-300x300.png)|
+| ![blackskyen](https://static-cdn.jtvnw.net/jtv_user_pictures/23377523-8be0-4a2b-bfd6-b6aa20222a5d-profile_image-300x300.png)|
 
 | [blaspyVT](https://twitch.tv/blaspyVT) |
 | ----- |
@@ -635,6 +635,13 @@
 | <strong>[Twitter](https://twitter.com/DeltaZeroPLVT2) [Youtube](https://www.youtube.com/channel/UChgzZ5REuy0klAcg7Mxsbcw?app=desktop)  </strong> |
 | ![DeltaZeroPLVT](https://static-cdn.jtvnw.net/jtv_user_pictures/f3c31e6d-70bf-4a33-8eee-531c39719edc-profile_image-300x300.png)|
 
+| [DetektywSniperKaczucha](https://twitch.tv/DetektywSniperKaczucha) |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa</span> |
+| 12.11.2014, 17:06:53 |
+| ![DetektywSniperKaczucha](https://static-cdn.jtvnw.net/jtv_user_pictures/749536db-ae7a-4a1d-99c7-5524803100ae-profile_image-300x300.png)|
+
 | [Deucel](https://twitch.tv/Deucel) |
 | ----- |
 | <strong>partner</strong> |
@@ -737,6 +744,13 @@
 | 18.02.2022, 13:47:37 |
 | <strong>[Instagram](https://www.instagram.com/dryad_yumeiko/)  </strong> |
 | ![DryadYumeiko](https://static-cdn.jtvnw.net/jtv_user_pictures/55d192b6-2807-4ab0-9722-488cc0d43147-profile_image-300x300.png)|
+
+| [Duella_](https://twitch.tv/Duella_) |
+| ----- |
+| <strong>non affiliate</strong> |
+| <span></span> |
+| 6.03.2021, 12:57:37 |
+| ![Duella_](https://static-cdn.jtvnw.net/jtv_user_pictures/ed527335-30c0-4d1c-ab44-adf95fad493a-profile_image-300x300.png)|
 
 | [DumDemon_Keira](https://twitch.tv/DumDemon_Keira) |
 | ----- |
@@ -1097,7 +1111,7 @@
 | <span>Mała streamerka z wielkim serduchem, która zawsze chętnie się pośmieje, pogada na każdy temat i lami w każdej możliwej grze! :3</span> |
 | 16.01.2023, 15:05:05 |
 | <strong>[Discord](https://discord.gg/V2bDtAe7Sr) [Twitter](https://twitter.com/hoshichaan_) [Youtube](https://www.youtube.com/@hoshi196) [Tiktok](https://www.tiktok.com/@hoshichaan_)  </strong> |
-| ![hoshichaan_](https://static-cdn.jtvnw.net/jtv_user_pictures/eb863b58-75b3-404a-b81a-f9dafca1acce-profile_image-300x300.png)|
+| ![hoshichaan_](https://static-cdn.jtvnw.net/jtv_user_pictures/628191d6-9922-4c6e-8a31-e610a0583b1a-profile_image-300x300.png)|
 
 | [Hotarusama](https://twitch.tv/Hotarusama) |
 | ----- |
@@ -1271,6 +1285,13 @@
 | 19.06.2016, 18:02:37 |
 | <strong>[Twitter](https://twitter.com/JustLovieca) [Discord](https://discord.gg/4QEqpdE3k8)  </strong> |
 | ![JustLovieca](https://static-cdn.jtvnw.net/jtv_user_pictures/ca240ad5-c9a0-43a3-92c0-e8b45aefe173-profile_image-300x300.jpeg)|
+
+| [juunuki](https://twitch.tv/juunuki) |
+| ----- |
+| <strong>non affiliate</strong> |
+| <span>Lazy artist drawing anime girls</span> |
+| 14.03.2023, 14:29:32 |
+| ![juunuki](https://static-cdn.jtvnw.net/jtv_user_pictures/8eedd9d4-892a-4cb0-b411-a4ec2ca1b853-profile_image-300x300.png)|
 
 | [K0RNER_TV](https://twitch.tv/K0RNER_TV) |
 | ----- |
@@ -2136,7 +2157,7 @@
 | <span>Hej Wszystkim! 🌸Jestem MsKitty Polska Vtuberka która umili wam dzień i zagwarantuje że miło spędzicie czas oglądając streamy! 💜Często gram w Genshina oraz denerwuje sie w Lolu</span> |
 | 2.02.2019, 15:43:10 |
 | <strong>[Instagram](https://www.instagram.com/trishha_j/) [Tipply](https://tipply.pl/u/trishha) [Discord](https://discord.gg/HJX6ussyCV) [Youtube](https://www.youtube.com/@MsKitty_VT) [Twitter](https://twitter.com/MsKitty_VT)  </strong> |
-| ![MsKitty_VT](https://static-cdn.jtvnw.net/jtv_user_pictures/66d6fa97-13da-4dd1-927f-0867c2504fb2-profile_image-300x300.png)|
+| ![MsKitty_VT](https://static-cdn.jtvnw.net/jtv_user_pictures/4efcdfeb-5c23-4074-93b2-52c4e5cb1358-profile_image-300x300.png)|
 
 | [Mukuro100](https://twitch.tv/Mukuro100) |
 | ----- |
@@ -2168,6 +2189,13 @@
 | <span> Yomimi, Nomnom – duo Vtuberów, którzy strimują kiedy i jak się im podoba. Miło nam, że tutaj jesteś!</span> |
 | 23.04.2021, 15:31:16 |
 | ![NadeNadeGuild](https://static-cdn.jtvnw.net/jtv_user_pictures/03f1e1af-a3d7-43c4-9cbc-3153c6f7c789-profile_image-300x300.png)|
+
+| [nakielkowany](https://twitch.tv/nakielkowany) |
+| ----- |
+| <strong>non affiliate</strong> |
+| <span>Pogramy sobie w gierki</span> |
+| 6.10.2021, 17:59:48 |
+| ![nakielkowany](https://static-cdn.jtvnw.net/jtv_user_pictures/da04bada-5c8e-45e1-92c1-8950fa55c7e6-profile_image-300x300.png)|
 
 | [namidanobaka](https://twitch.tv/namidanobaka) |
 | ----- |
@@ -2252,10 +2280,10 @@
 | [Nianshie](https://twitch.tv/Nianshie) |
 | ----- |
 | <strong>non affiliate</strong> |
-| <span>Siemka aspirujacy streamer i veteran gaming'u, streamuje różne gierki głównie gry gacha jak Genshin Impact lub to na co złapie mnie ochota wpadnij pogadać i miło spędzić czas- // Gacha i Mmorpg</span> |
+| <span>Po wielu próbach przejścia do naszego świata ziemskiego ✗ Bóg Nian ✗ ze świata równoległego przyjmuje ludzko podobne formy by co nazywają ludzie rozrywką odnaleźć spokój i odpoczynek od swojej Roli w świecie pierwotnym. Poznaje świat Gacha...</span> |
 | 5.03.2016, 19:35:27 |
 | <strong>[Twitter](https://twitter.com/Nianshie_TTV) [Youtube](https://www.youtube.com/@Nianshie)  </strong> |
-| ![Nianshie](https://static-cdn.jtvnw.net/jtv_user_pictures/bd2bda99-3fa4-4da8-9a0d-61b75ad549fc-profile_image-300x300.png)|
+| ![Nianshie](https://static-cdn.jtvnw.net/jtv_user_pictures/d23fed7b-33e5-45ca-ac77-1192b5cc67eb-profile_image-300x300.png)|
 
 | [NightKaii](https://twitch.tv/NightKaii) |
 | ----- |
@@ -2382,15 +2410,7 @@
 | <span>Cześć jestem Orchidia. Streamuje głównie w tygodniu po godzinie 18:00 czasem zdarzy się i w weekendy. Zobaczycie u mnie dużo gier azjatyckich jak Genshin Impact czy Naraka: Bladepoint i inne. Cenię sobie dobrą atmosferę i duuuużo gadam.</span> |
 | 6.01.2017, 12:04:21 |
 | <strong>[Youtube](https://www.youtube.com/channel/UCcQckR8HEZxzYYPGbHU5hvQ) [Discord](https://discord.gg/6sS3FMDuNC) [Instagram](https://www.instagram.com/orchidia92games/) [Tiktok](https://www.tiktok.com/@orchidia92) [Http://orchigaming](http://orchigaming.pl/)  </strong> |
-| ![Orchidia92](https://static-cdn.jtvnw.net/jtv_user_pictures/532a9872-2862-48f7-994e-df67b9e6a578-profile_image-300x300.png)|
-
-| [oszata](https://twitch.tv/oszata) |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>Witcher & IRL& Art & śmieszke</span> |
-| 22.10.2020, 18:01:05 |
-| <strong>[Youtube](https://www.youtube.com/channel/UC4TgH_xbV9x0nDPwgow5Icg/featured) [Youtube](https://www.youtube.com/channel/UCwLso3vRyvi8dxtkiKcqaUw) [Facebook](https://www.facebook.com/Oszaty) [Odysee](https://odysee.com/$/invite/@Oszata:c) [Discord](https://discord.gg/TT5EnpGjp9)  </strong> |
-| ![oszata](https://static-cdn.jtvnw.net/jtv_user_pictures/fcbfdba7-369d-426e-9f12-430436256292-profile_image-300x300.png)|
+| ![Orchidia92](https://cdn.discordapp.com/attachments/989095141874749470/1161672507758223380/image.png)|
 
 | [pablokentonare](https://twitch.tv/pablokentonare) |
 | ----- |
@@ -3585,6 +3605,13 @@
 | <span>Hejka! Jestem żółtym pokemonem tworzącym obrazki. Dopiero zaczynam stawiać kroczki w streamowaniu. Jeśli podoba Ci się atmosfera moich streamów, chcesz pomóc rozwijać mój kanał - zostań na dłużej! Twoje wsparcie jest niezmiernie motywujące! 💛</span> |
 | 22.02.2021, 00:25:57 |
 | ![Yuriko_Moji](https://static-cdn.jtvnw.net/jtv_user_pictures/5623b51e-dc29-4726-b5fe-438e923b5b72-profile_image-300x300.png)|
+
+| [Yuuki_VR](https://twitch.tv/Yuuki_VR) |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>Polish Cringe Vtuber</span> |
+| 16.01.2016, 18:33:09 |
+| ![Yuuki_VR](https://static-cdn.jtvnw.net/jtv_user_pictures/8964096e-2f3b-4151-b246-921e9ed6e636-profile_image-300x300.png)|
 
 | [yuukitsu](https://twitch.tv/yuukitsu) |
 | ----- |
