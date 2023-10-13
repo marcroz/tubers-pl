@@ -1,4 +1,4 @@
-[Atkualna tierlista](https://tiermaker.com/create/polscy-twitchowi-vtuberzy-1354953-4)
+# [Atkualna tierlista](https://tiermaker.com/create/polscy-twitchowi-vtuberzy-1354953-4)
 
 | [10WiktoriQ100 false](https://twitch.tv/10WiktoriQ100) |
 | ----- |
