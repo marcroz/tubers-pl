@@ -3359,6 +3359,13 @@
 | <strong>[Discord](https://discord.gg/tFeFCmE72k)  </strong> |
 | ![vtsina](https://static-cdn.jtvnw.net/jtv_user_pictures/2ef766a0-6ab8-4eed-a8d0-f32a1143501f-profile_image-300x300.jpeg)|
 
+| [VulpiePie](https://twitch.tv/VulpiePie) |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>Sometimes I stream, sometimes I don't, I work full time so I get zoned    AHHHHHH</span> |
+| 3.01.2022, 19:12:12 |
+| ![VulpiePie](https://static-cdn.jtvnw.net/jtv_user_pictures/b984a7f4-b619-4d31-b1ab-56f7ad4227b0-profile_image-300x300.png)|
+
 | [wasker97](https://twitch.tv/wasker97) |
 | ----- |
 | <strong>non affiliate</strong> |
