@@ -55,6 +55,13 @@
 | <strong>[Twitter](https://twitter.com/AdaReika) [Youtube](https://www.youtube.com/channel/UCKcagd_2AMsCXsI83Ifto4A) [Reikadachannel.wixsite](https://reikadachannel.wixsite.com/ada-reika/commissions)  </strong> |
 | ![AdaReika](https://static-cdn.jtvnw.net/jtv_user_pictures/0eb38b0b-2626-4a75-8f4d-882e3597ca43-profile_image-300x300.png)|
 
+| [AdoriVt ](https://twitch.tv/AdoriVt) |
+| ----- |
+| <strong>affiliate</strong> |
+| <span></span> |
+| 22.12.2018, 11:47:13 |
+| ![AdoriVt](https://static-cdn.jtvnw.net/jtv_user_pictures/8b417a73-0b6a-454c-987e-95c0d4be4655-profile_image-300x300.png)|
+
 | [Aeshir ](https://twitch.tv/Aeshir) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -665,7 +672,7 @@
 | <strong>affiliate</strong> |
 | <span>Uszanowanie z tej strony były doktor kliniki jeżeli chcesz napisać zapraszam na mojego discorda. Znajdziesz tu gry typu League of Legends i inne. Mam nadzieję że będziesz się tu dobrze bawić.Mail kontaktowy: kaptynbiznes@gmail.com</span> |
 | 25.02.2016, 23:21:17 |
-| <strong>[Youtube](https://www.youtube.com/channel/UCJSqaqtPPDedDyiZTxy9MkA) [Discord](https://discord.gg/P8kD52H2YB) [Anilist](https://anilist.co/user/Kaptyn/animelist) [Tiktok](https://www.tiktok.com/@drkaptyn) [Twitter](https://twitter.com/DrKaptyn?t=ZCqRERMDaaW23po56ukL7g&s=07)  </strong> |
+| <strong>[Discord](https://discord.gg/P8kD52H2YB) [Anilist](https://anilist.co/user/Kaptyn/animelist) [Tiktok](https://www.tiktok.com/@drkaptyn) [Twitter](https://twitter.com/DrKaptyn?t=ZCqRERMDaaW23po56ukL7g&s=07)  </strong> |
 | ![DoktorKaptyn](https://static-cdn.jtvnw.net/jtv_user_pictures/aba14f5c-4357-438a-be15-19341499b414-profile_image-300x300.png)|
 
 | [dolliechu ](https://twitch.tv/dolliechu) |
@@ -697,6 +704,7 @@
 | <strong>non affiliate</strong> |
 | <span>PL 🐱 Hewo wszystkim jestem Draken, który szuka i się uczy nowych atrakcji i zabaw. Gdybyście chcieli mnie pouczyć to byłbym MEGA wdzięczny, każdy Follow to o 1 razy więcej stresu i wstydzenya~ 😳</span> |
 | 31.03.2021, 10:27:16 |
+| <strong>[X](https://x.com/Drakenowskii?t=U1nP-qJi88hYZhiYkiVDQg&s=09)  </strong> |
 | ![Draken_Kociakowski](https://static-cdn.jtvnw.net/jtv_user_pictures/a943e6ae-d93a-47b7-942a-f444e5b60290-profile_image-300x300.jpeg)|
 
 | [Drunk_Dem0n ](https://twitch.tv/Drunk_Dem0n) |
@@ -1462,6 +1470,7 @@
 | <strong>non affiliate</strong> |
 | <span>Hejcia ^^ Jestem Kopolit i staram się robić to co kocham. Jestem Vtuberem i kucharzem z zawodu, zazwyczaj gram sobie w gierki rytmiczno-muzyczne bądź rysuję off-stream. Potowarzyszcie mi w drodze do zdobycia 100 followków ^^ Lofki &lt;3 </span> |
 | 8.02.2020, 16:15:05 |
+| <strong>[Twitter](https://twitter.com/KopolitPink)  </strong> |
 | ![Kopolit_](https://static-cdn.jtvnw.net/jtv_user_pictures/d089701f-2172-4383-9d94-f504965469bf-profile_image-300x300.jpeg)|
 
 | [korewaTabit ](https://twitch.tv/korewaTabit) |
@@ -1485,6 +1494,7 @@
 | <strong>non affiliate</strong> |
 | <span>Hi I'm a beginning Polish png tuber. I play games like issac, dying light and many more! I plan to stream in the afternoons. That's really it I hope you will enjoy my streams!</span> |
 | 18.12.2019, 23:35:57 |
+| <strong>[Twitter](https://twitter.com/kotletowaty) [Youtube](https://www.youtube.com/channel/UCrlpeJ--5PgKX72rjKWinhw)  </strong> |
 | ![Kotletowaty_](https://static-cdn.jtvnw.net/jtv_user_pictures/12c97723-ef93-4ccc-97f5-6c769988102f-profile_image-300x300.png)|
 
 | [kozloskaa ](https://twitch.tv/kozloskaa) |
@@ -1648,6 +1658,13 @@
 | 6.03.2018, 22:29:31 |
 | <strong>[Discord](https://discord.gg/QSXZdKQEfV) [Tipply](https://tipply.pl/u/Licoya)  </strong> |
 | ![Licoya_TheDragonMommy](https://static-cdn.jtvnw.net/jtv_user_pictures/2c99bde5-3340-4e68-9c78-cdae7e747ff6-profile_image-300x300.png)|
+
+| [LimonkaAwn ](https://twitch.tv/LimonkaAwn) |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>Witam wszystkich, tutaj blady chłop, co powraca co pewien czas na Twitcha, ale stara się powrócić na czas dłuższy, czy też w końcu na stałe. Lubię rysować, grywać w giereczki i siedzieć na Twitchu (ale zazwyczaj na czyiś streamkach). </span> |
+| 12.06.2019, 16:09:32 |
+| ![LimonkaAwn](https://static-cdn.jtvnw.net/jtv_user_pictures/97890e4c-5c48-40ab-9e57-ce6cfa78df14-profile_image-300x300.png)|
 
 | [Lintherka ](https://twitch.tv/Lintherka) |
 | ----- |
@@ -1843,6 +1860,7 @@
 | <strong>affiliate</strong> |
 | <span>Meiko - Part time streamer, Full Time Hazard Magnet</span> |
 | 13.03.2019, 17:32:00 |
+| <strong>[Twitter](https://twitter.com/MeikoDrive) [Youtube](https://www.youtube.com/@meikodrive) [Youtube](https://www.youtube.com/@meikodrivevods)  </strong> |
 | ![meikodrive](https://static-cdn.jtvnw.net/jtv_user_pictures/7dcee51f-e51e-427c-9459-0389f5c59401-profile_image-300x300.png)|
 
 | [merek_toja ](https://twitch.tv/merek_toja) |
@@ -1944,7 +1962,7 @@
 | <strong>non affiliate</strong> |
 | <span>✧ Kicia Vtuber ✧ </span> |
 | 22.01.2020, 22:05:01 |
-| ![misato_neko](https://static-cdn.jtvnw.net/jtv_user_pictures/e6502d66-fd5c-4ba1-8a75-0beed11f2697-profile_image-300x300.png)|
+| ![misato_neko](https://static-cdn.jtvnw.net/jtv_user_pictures/d042784e-5f71-4ae5-8277-81d27ea626a3-profile_image-300x300.png)|
 
 | [MisieQtaz ](https://twitch.tv/MisieQtaz) |
 | ----- |
@@ -2046,7 +2064,7 @@
 | <strong>affiliate</strong> |
 | <span>Hello everynyan! Z tej strony Morrigan. Jestem vtuberką streamującą z modelem kociej artystki. Na streamkach klikam w gierki takie jak honkai, genshin, tft, ligunia i tez rysuję! Zapraszam do wspólnej zabawy ze mną i z chatem!</span> |
 | 22.02.2021, 07:04:34 |
-| <strong>[Discord](https://discord.gg/yjUYQJef4P) [Twitter](https://twitter.com/morrinyahVT) [Trello](https://trello.com/b/9coDnp3m/morrinyah-commissions)  </strong> |
+| <strong>[Discord](https://discord.gg/yjUYQJef4P) [Twitter](https://twitter.com/morrinyahVT) [Trello](https://trello.com/invite/b/9coDnp3m/ATTIa1d022c9bbc5dfd398e1594c4ec4f52c7CD77829/morrinyah-commissions)  </strong> |
 | ![morrinyah](https://static-cdn.jtvnw.net/jtv_user_pictures/96ef4bf6-4046-4aca-a063-a0fed49ca8ed-profile_image-300x300.png)|
 
 | [mrhappy991 ](https://twitch.tv/mrhappy991) |
@@ -2323,6 +2341,7 @@
 | <strong>affiliate</strong> |
 | <span>sheep</span> |
 | 30.08.2020, 15:52:19 |
+| <strong>[Twitter](https://twitter.com/okaree__) [Discord](https://discord.gg/9DAHEjb9FA) [Tiktok](https://www.tiktok.com/@okaree__) [Youtube](https://www.youtube.com/@okaree_)  </strong> |
 | ![okaree](https://static-cdn.jtvnw.net/jtv_user_pictures/729b43b3-568e-46c5-bdc2-cb618fd72cf0-profile_image-300x300.png)|
 
 | [olsabolla ](https://twitch.tv/olsabolla) |
@@ -3023,7 +3042,7 @@
 | <span>🌸 Lover of everything that's paranormal, supernatural and horror-like, depressed procrastinator and your favourite noob. 🌸</span> |
 | 25.05.2017, 11:35:42 |
 | <strong>[Twitter](https://twitter.com/ThalsaVT)  </strong> |
-| ![Thalsa](https://static-cdn.jtvnw.net/jtv_user_pictures/b4326bb4-ea82-45f7-82e4-fab969f8419c-profile_image-300x300.png)|
+| ![Thalsa](https://static-cdn.jtvnw.net/jtv_user_pictures/051793d6-4713-4d0c-97f1-8c05322cab42-profile_image-300x300.png)|
 
 | [the_zoe_ ](https://twitch.tv/the_zoe_) |
 | ----- |
@@ -3203,7 +3222,7 @@
 | [viczka_ ](https://twitch.tv/viczka_) |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>anime baba, która gra w gry - szok i niedowierzenie!</span> |
+| <span>anime baba, która gra w gry - szok i niedowierzenie! ♡ ⸝⸝</span> |
 | 9.09.2018, 17:32:44 |
 | <strong>[Twitter](https://twitter.com/viczkaVT) [Discord](https://discord.com/invite/cK9AwWvgZ)  </strong> |
 | ![viczka_](https://static-cdn.jtvnw.net/jtv_user_pictures/f6c73f08-5749-46ce-a9e3-ab0c7f7e33af-profile_image-300x300.png)|
@@ -3253,6 +3272,7 @@
 | <strong>affiliate</strong> |
 | <span>Sometimes I stream, sometimes I don't, I work full time so I get zoned    AHHHHHH</span> |
 | 3.01.2022, 19:12:12 |
+| <strong>[Discord](https://discord.gg/v2Qn9t76Bz) [Twitter](https://twitter.com/vulpiepie) [Etsy](https://www.etsy.com/pl/shop/VulpieHere?ref=l2-about-shopname) [Trello](https://trello.com/b/rEWziK8M/vulpies-commissions)  </strong> |
 | ![VulpiePie](https://static-cdn.jtvnw.net/jtv_user_pictures/b984a7f4-b619-4d31-b1ab-56f7ad4227b0-profile_image-300x300.png)|
 
 | [wasker97 ](https://twitch.tv/wasker97) |
