@@ -1,4 +1,4 @@
-# [Atkualna tierlista](https://tiermaker.com/create/polscy-twitchowi-vtuberzy-1354953-4)
+# [Atkualna tierlista](https://tiermaker.com/create/polscy-twitchowi-vtuberzy-1354953-5)
 
 | [10WiktoriQ100 ](https://twitch.tv/10WiktoriQ100) |
 | ----- |
@@ -176,7 +176,7 @@
 | [Amaroock ](https://twitch.tv/Amaroock) |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>https://amarock.crd.co/</span> |
+| <span></span> |
 | 21.01.2018, 16:17:07 |
 | <strong>[Facebook](https://www.facebook.com/Amarock-112259564881346/)  </strong> |
 | ![Amaroock](https://static-cdn.jtvnw.net/jtv_user_pictures/76a93b04-5556-43dd-852c-be48d9bbc6cc-profile_image-300x300.png)|
@@ -242,7 +242,7 @@
 | <span>Książę Armios Bell władca królestwa Lunar Eclipse. Wychowywał się w mieście Sulwanh gdzie należał do bractwa Dark Moon ze względu na silne przywiązanie do mocy księżyca. Zawita u was w snach :3</span> |
 | 14.10.2017, 09:42:16 |
 | <strong>[Steamcommunity](https://steamcommunity.com/profiles/76561198013232762/) [Twitter](https://twitter.com/ArmiosBell) [Discord](https://discord.gg/d9JuP7zFhz) [Youtube](https://www.youtube.com/user/seba2976/featured) [Instagram](https://www.instagram.com/armiozbell/)  </strong> |
-| ![ArmiosBell](https://static-cdn.jtvnw.net/jtv_user_pictures/0a8d355e-38af-4a69-80d3-e5d08328e5ad-profile_image-300x300.png)|
+| ![ArmiosBell](https://static-cdn.jtvnw.net/jtv_user_pictures/d21c3803-b141-4e42-b3b7-6cadab94d424-profile_image-300x300.png)|
 
 | [Artevor_ ](https://twitch.tv/Artevor_) |
 | ----- |
@@ -310,7 +310,7 @@
 | [Aziulka ](https://twitch.tv/Aziulka) |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Yaho! Catboy w którym walczą o ironio dwa wilki. Kiedy zobaczymy drugiego wilka? Will see. Gram w gry i oglądam bajki.</span> |
+| <span>Yaho! Chcesz zobaczyć kotki w piwnicy? </span> |
 | 28.03.2017, 16:56:45 |
 | <strong>[Twitter](https://twitter.com/AziulkaTTV) [Discord](https://discord.gg/XB22GrYMg2) [Tiktok](https://www.tiktok.com/@aziulkattv?_t=8g0GLA5oOjR&_r=1)  </strong> |
 | ![Aziulka](https://static-cdn.jtvnw.net/jtv_user_pictures/331d0253-ff12-4f01-94ad-35e6217ad090-profile_image-300x300.png)|
@@ -395,7 +395,7 @@
 | [BlondiiVT ](https://twitch.tv/BlondiiVT) |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Yoo witam, jestem Elfim królem zreinkarnowanym w innym świecie </span> |
+| <span>Witom, tutaj Elfi alkoholik który nudzi się i gra w gry </span> |
 | 30.09.2017, 20:39:58 |
 | <strong>[Twitter](https://twitter.com/Blondii2137) [Discord](https://discord.gg/vkHSzpTzJS)  </strong> |
 | ![BlondiiVT](https://static-cdn.jtvnw.net/jtv_user_pictures/14d69ffa-4c73-4fe3-b684-46af0c0ed3cc-profile_image-300x300.png)|
@@ -695,7 +695,7 @@
 | [Draken_Kociakowski ](https://twitch.tv/Draken_Kociakowski) |
 | ----- |
 | <strong>non affiliate</strong> |
-| <span>Jesteś Światem czy Uniwersum?</span> |
+| <span>PL 🐱 Hewo wszystkim jestem Draken, który szuka i się uczy nowych atrakcji i zabaw. Gdybyście chcieli mnie pouczyć to byłbym MEGA wdzięczny, każdy Follow to o 1 razy więcej stresu i wstydzenya~ 😳</span> |
 | 31.03.2021, 10:27:16 |
 | ![Draken_Kociakowski](https://static-cdn.jtvnw.net/jtv_user_pictures/a943e6ae-d93a-47b7-942a-f444e5b60290-profile_image-300x300.jpeg)|
 
@@ -819,7 +819,7 @@
 | [FalafelToJa ](https://twitch.tv/FalafelToJa) |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>[she/her] FAAAAAAAAAAAAAAAAAAAAAAAALLLLLLLLLLLLLAAAAAAAAAAAAAAAAAAAAAFFFFFFFFFFFFFFFEEEEEEEEEEEEEEELLLLLLLLLL</span> |
+| <span>[she/her] meow</span> |
 | 16.03.2019, 20:01:30 |
 | <strong>[Twitter](https://twitter.com/FalafelToJa) [Youtube](https://www.youtube.com/channel/UCQ7OZ6LJIpcSxU7e4oWIm9Q/featured) [Discord](https://discord.gg/TAHxXTJ3ej)  </strong> |
 | ![FalafelToJa](https://static-cdn.jtvnw.net/jtv_user_pictures/c51e6821-3f05-4c4e-9e67-f9f93733b8d4-profile_image-300x300.png)|
@@ -978,7 +978,7 @@
 | <strong>affiliate</strong> |
 | <span></span> |
 | 29.08.2016, 20:38:46 |
-| ![Hakkasee](https://static-cdn.jtvnw.net/jtv_user_pictures/a1e3243b-0048-4f3a-967d-c039d14f6f1c-profile_image-300x300.png)|
+| ![Hakkasee](https://static-cdn.jtvnw.net/jtv_user_pictures/d9e2f52f-1af6-4493-bb74-91466dd63885-profile_image-300x300.png)|
 
 | [hamiashi ](https://twitch.tv/hamiashi) |
 | ----- |
@@ -1271,7 +1271,7 @@
 | <span>Przygłupi stworek o imieniu bocia. Jestem kurzem. Proszę, zmieć mnie na szufelkę i wyrzuć do śmietnika. </span> |
 | 26.11.2020, 20:45:43 |
 | <strong>[Twitter](https://twitter.com/kabociaVT)  </strong> |
-| ![kabocia](https://static-cdn.jtvnw.net/jtv_user_pictures/8e7fdf55-8e67-4d13-a281-69e79573ffd9-profile_image-300x300.png)|
+| ![kabocia](https://static-cdn.jtvnw.net/jtv_user_pictures/d9076477-ae84-40cb-ab7f-29d0f1f9d256-profile_image-300x300.png)|
 
 | [KaffiTaru ](https://twitch.tv/KaffiTaru) |
 | ----- |
@@ -1612,7 +1612,7 @@
 | [LeeKrissu ](https://twitch.tv/LeeKrissu) |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Something new is coming...</span> |
+| <span>REDEBUT 28TH OCTOBER 12PM CEST!</span> |
 | 6.05.2020, 13:58:45 |
 | <strong>[Twitter](https://twitter.com/krissu_lee) [Instagram](https://www.instagram.com/leekrissu_/) [Discord](https://discord.gg/uqfK24e) [Youtube](https://www.youtube.com/channel/UCoxXlTeKl7FblmR01j3ORSg) [Leekrissu.carrd](https://leekrissu.carrd.co/)  </strong> |
 | ![LeeKrissu](https://yt3.googleusercontent.com/TWS6vpAPWlEA_Si0UPPKRefGYRtgkhM-QwMhrDJfNeGJgn8UNUM9L3ynKldqvSwl7yLPcBJjOg=s176-c-k-c0x00ffffff-no-rj)|
@@ -1656,14 +1656,6 @@
 | 4.10.2016, 19:25:11 |
 | <strong>[Tipply](https://tipply.pl/u/lintherka)  </strong> |
 | ![Lintherka](https://static-cdn.jtvnw.net/jtv_user_pictures/e7bef954-9440-4c32-8a81-6be2e4f27635-profile_image-300x300.png)|
-
-| [Lise_Q ](https://twitch.tv/Lise_Q) |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>Witam w mojej kuchni, zapraszam do zapoznania się z menu B)</span> |
-| 22.03.2021, 14:58:24 |
-| <strong>[Tiktok](https://www.tiktok.com/@lise_qhe) [Discord](https://discord.gg/9ZPE3qE6Md) [Twitter](https://twitter.com/Lise_QIV)  </strong> |
-| ![Lise_Q](https://static-cdn.jtvnw.net/jtv_user_pictures/8386f7b1-ffae-4193-90eb-7f21b29108ae-profile_image-300x300.png)|
 
 | [Lishiana ](https://twitch.tv/Lishiana) |
 | ----- |
@@ -1785,10 +1777,10 @@
 | [Maser1138 ](https://twitch.tv/Maser1138) |
 | ----- |
 | <strong>non affiliate</strong> |
-| <span>Vtuber grający w stare gry i wydurniający się w internecie</span> |
+| <span></span> |
 | 27.11.2020, 20:12:26 |
 | <strong>[Youtube](https://www.youtube.com/channel/UCq7aZo97KVrknNk6m8FC-gw) [Twitter](https://twitter.com/Maser2k)  </strong> |
-| ![Maser1138](https://static-cdn.jtvnw.net/jtv_user_pictures/0d37db8c-3b8e-4598-8b71-31d9eb8e4cde-profile_image-300x300.png)|
+| ![Maser1138](https://static-cdn.jtvnw.net/jtv_user_pictures/433ab216-abb1-442e-bfd1-cc4c6c9c338b-profile_image-300x300.png)|
 
 | [MasterbloczeK ](https://twitch.tv/MasterbloczeK) |
 | ----- |
@@ -2241,7 +2233,7 @@
 | [nightmareDeroo ](https://twitch.tv/nightmareDeroo) |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Twój mały koszmarek. Obserwuje twoje sny~</span> |
+| <span>Witaj. Zwą mnie Deroo. Twój koszmar. Lecz pamiętaj, że pozory mylą. Oprócz braku jakiegokolwiek pojęcia co tutaj robię to gram w losowe gry. Nie umiem robić bio</span> |
 | 3.05.2016, 12:34:10 |
 | <strong>[Twitter](https://twitter.com/nightmareDeroo) [Discord](https://discord.com/invite/6nSdDkUMrb)  </strong> |
 | ![nightmareDeroo](https://media.discordapp.net/attachments/989095141874749470/1162038917915234334/image.png)|
@@ -2304,7 +2296,7 @@
 
 | [Nyxiiia ](https://twitch.tv/Nyxiiia) |
 | ----- |
-| <strong>affiliate</strong> |
+| <strong>partner</strong> |
 | <span>Heeeya! Welcome to my stream, where the main goal is for you and me to have fun!I love a blankie, hot tea  and, most importantly, having a lot of fun interactions with the chat, so say hello and let's get talking! ^_____^We can talk in English or Polish ≧◡≦</span> |
 | 25.11.2019, 15:26:39 |
 | <strong>[Discord](https://discord.gg/grN7xg4N9U) [Tiktok](https://www.tiktok.com/@nyxiiiavt) [Twitter](https://twitter.com/Nyxiiiavtube) [Youtube](https://www.youtube.com/channel/UCSmT0EYckCbdKHwSSmmtNVA) [Linktr](https://linktr.ee/nyxiiia)  </strong> |
@@ -2331,7 +2323,6 @@
 | <strong>affiliate</strong> |
 | <span>sheep</span> |
 | 30.08.2020, 15:52:19 |
-| <strong>[Twitter](https://twitter.com/okaree__) [Discord](https://discord.gg/9DAHEjb9FA) [Tiktok](https://www.tiktok.com/@okaree__) [Youtube](https://www.youtube.com/@okaree_)  </strong> |
 | ![okaree](https://static-cdn.jtvnw.net/jtv_user_pictures/729b43b3-568e-46c5-bdc2-cb618fd72cf0-profile_image-300x300.png)|
 
 | [olsabolla ](https://twitch.tv/olsabolla) |
@@ -2447,7 +2438,7 @@
 | [powpowVT ](https://twitch.tv/powpowVT) |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>ADHDowiec, który uwielbia krzyczeć i nie potrafi dobrze strzelać. Najlepiej co mi wychodzi to umieranie i bieganie.</span> |
+| <span>Wanna be friends?</span> |
 | 27.12.2021, 17:31:29 |
 | <strong>[Twitter](https://twitter.com/powpowvt) [Discord](https://discord.gg/fzuzHeV65n) [Instagram](https://instagram.com/powdervt?igshid=NzMyMjgxZWIzNw==) [Tipo](https://tipo.live/p/powpowvt)  </strong> |
 | ![powpowVT](https://static-cdn.jtvnw.net/jtv_user_pictures/2e2228ee-3a5e-4e82-8d02-1a3caa752f90-profile_image-300x300.png)|
@@ -2708,7 +2699,7 @@
 | <span>Hey everyone! My name is Shaato but u can call me Leon! im a CatBoy VTuber Streamer! My Schedule Shows what time im streaming, streams are not mandatory, which means they may or may not take place! Thank you for your time! https://throne.com/shaato</span> |
 | 29.03.2020, 20:53:31 |
 | <strong>[Youtube](https://www.youtube.com/channel/UCg_Ajbc5FfdRYL_t6zFQyPQ) [Discord](https://discord.gg/Pg6EUqUt9S) [Twitter](https://twitter.com/szesnastek) [Instagram](https://www.instagram.com/szesnastek16)  </strong> |
-| ![shaato](https://static-cdn.jtvnw.net/jtv_user_pictures/5e4cd1fb-4730-4963-ac50-f983782d4c2e-profile_image-300x300.jpeg)|
+| ![shaato](https://static-cdn.jtvnw.net/jtv_user_pictures/e1e0db64-1233-4a7b-9371-65f290bf1884-profile_image-300x300.png)|
 
 | [Shallrina ](https://twitch.tv/Shallrina) |
 | ----- |
@@ -3220,7 +3211,7 @@
 | [Vldm0 ](https://twitch.tv/Vldm0) |
 | ----- |
 | <strong>non affiliate</strong> |
-| <span>I am Vidm0, I'm a v-tuber, and I like FPS, and racing games. Let's Start A Riot! My socials: https://linktr.ee/vidm0</span> |
+| <span>I am Vidm0, I'm a vtuber, and I like FPS, and racing gamesSocials: https://linktr.ee/vidm0</span> |
 | 16.10.2021, 22:48:12 |
 | <strong>[Twitter](https://twitter.com/NaG_Vidm0?t=vpHoWQ3i-lLGizk6N2LHng&s=09) [Youtube](https://youtube.com/channel/UCyi-ciUU0e5-Y0QiuAl9qrg)  </strong> |
 | ![Vldm0](https://static-cdn.jtvnw.net/jtv_user_pictures/509afc51-0929-4945-bee1-b8bdfa166384-profile_image-300x300.jpeg)|
@@ -3436,7 +3427,7 @@
 
 | [Yaimizu ](https://twitch.tv/Yaimizu) |
 | ----- |
-| <strong>non affiliate</strong> |
+| <strong>affiliate</strong> |
 | <span>Hejka! Nazywam się Julia i właśnie zaczęłam swoją przygodę z twitchem! Moim hobby jest rysowanie a największym talentem to brak umiejętności grania w gry XD (Z czego właśnie streamuję!) Jeżeli masz ochotę pogadać bądź razem pograć to zapraszam po trochę humoru ;D</span> |
 | 19.11.2019, 18:26:58 |
 | <strong>[Tipply](https://tipply.pl/u/yaimizu) [Tiktok](https://www.tiktok.com/@yaimizu?_t=8fq6kBSQnon&_r=1) [Discord](https://discord.gg/HyAvEMRm5M)  </strong> |
@@ -3525,7 +3516,7 @@
 | <strong>non affiliate</strong> |
 | <span>GO BIG OR GO HOME BESTIES!!!!!</span> |
 | 2.09.2023, 00:05:36 |
-| ![yuukitsu](https://static-cdn.jtvnw.net/jtv_user_pictures/d8ccc3c9-5ee0-4032-9a4c-cbef92224038-profile_image-300x300.png)|
+| ![yuukitsu](https://static-cdn.jtvnw.net/jtv_user_pictures/01c26634-e195-437b-b886-d43d1375d0df-profile_image-300x300.png)|
 
 | [zenek_kun ](https://twitch.tv/zenek_kun) |
 | ----- |
