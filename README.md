@@ -78,14 +78,6 @@
 | <strong>[Twitter](https://twitter.com/ahichiru)  </strong> |
 | ![ahichiru](https://static-cdn.jtvnw.net/jtv_user_pictures/766d25b3-d7a1-4947-bd50-f7227dd1a878-profile_image-300x300.png)|
 
-| [AhrinX_3 ](https://twitch.tv/AhrinX_3) |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>Hej tu Pepega znaczy Ahrin (czyt. Arin)  streamuje zazwyczaj pokemon unite oraz genshina chociaż mogą się pojawiać inne gierki </span> |
-| 18.12.2020, 22:16:14 |
-| <strong>[Discord](https://discord.gg/u5bFyYFemJ)  </strong> |
-| ![AhrinX_3](https://static-cdn.jtvnw.net/jtv_user_pictures/71f11e25-7a99-4ffc-a279-8ea89490fec5-profile_image-300x300.png)|
-
 | [Aikeji ](https://twitch.tv/Aikeji) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -816,14 +808,6 @@
 | <strong>[Discord](https://discord.gg/) [Instagram](https://www.instagram.com/evil_m0orty/) [Open.spotify](https://open.spotify.com/user/9k1sk6yfeikedfqhc54ompxtl?si=ac2e56351c5d46ea) [Evil-m0orty.tumblr](https://evil-m0orty.tumblr.com/)  </strong> |
 | ![evil_m0orty](https://static-cdn.jtvnw.net/jtv_user_pictures/216c6b7f-3a00-4a2f-afbc-72637b3451eb-profile_image-300x300.png)|
 
-| [ezQuiet ](https://twitch.tv/ezQuiet) |
-| ----- |
-| <strong>non affiliate</strong> |
-| <span>Welcome to the Q! I'm ezQuiet, a corporate-bound kuudere who just wants to be a hikineet.</span> |
-| 19.02.2012, 05:54:22 |
-| <strong>[Twitter](https://twitter.com/easyquiet) [Instagram](https://www.instagram.com/easyqu1et/) [Youtube](https://www.youtube.com/channel/UCzyqfqINu6mvuN0Gcrwk49w) [Instagram](https://www.instagram.com/redlilystudios/) [Twitter](https://twitter.com/redlilystudios)  </strong> |
-| ![ezQuiet](https://cdn.discordapp.com/attachments/989095141874749470/1160991948442706020/image.png)|
-
 | [FaerinVT ](https://twitch.tv/FaerinVT) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -1437,14 +1421,6 @@
 | <strong>[Discord](https://discord.gg/G3yrvHQ) [Facebook](https://www.facebook.com/Kitty-Lovecraft-113030000446753) [Instagram](https://www.instagram.com/_kittylovecraft_/) [Twitter](https://twitter.com/KittyLovecraft) [Youtube](https://www.youtube.com/channel/UCvT3uEBT1YJk932k9_GrFYQ)  </strong> |
 | ![kitty_lovecraft](https://static-cdn.jtvnw.net/jtv_user_pictures/31969e87-afd5-42d2-aaa5-0becd10e6e5c-profile_image-300x300.png)|
 
-| [klaudiavxv ](https://twitch.tv/klaudiavxv) |
-| ----- |
-| <strong>non affiliate</strong> |
-| <span>hot 20DONATE(paypal):lotor47@inetria.pl</span> |
-| 9.10.2023, 17:26:27 |
-| <strong>[Twitter](https://twitter.com/aklauudia)  </strong> |
-| ![klaudiavxv](https://static-cdn.jtvnw.net/jtv_user_pictures/590c357a-3c8f-47d7-bb9e-884c3570794b-profile_image-300x300.png)|
-
 | [Koiwhyy ](https://twitch.tv/Koiwhyy) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -1547,14 +1523,6 @@
 | 10.02.2018, 13:03:29 |
 | <strong>[Discord](https://discord.gg/BEZNnxSZR3) [Tiktok](https://www.tiktok.com/@kucykvr) [Twitter](https://twitter.com/KucykVR) [Youtube](https://youtube.com/@KucykVR)  </strong> |
 | ![KucykVR](https://static-cdn.jtvnw.net/jtv_user_pictures/5688d377-1a53-457d-8b66-02a59d9aed64-profile_image-300x300.png)|
-
-| [KumaBerlin ](https://twitch.tv/KumaBerlin) |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>Willkommen in der Bärenhöhle. Ich bin Kuma Berlin ein Bär aus Deutschland. Hier könnt ihr mir Live aus meiner Höhle zuschauen wie ich verschiedene Games Stream. Macht es euch gemütlich und holt euch eine Honigmilch.</span> |
-| 24.05.2014, 16:09:16 |
-| <strong>[Twitter](https://twitter.com/KumaB_Ch) [Youtube](https://www.youtube.com/channel/UCCF_iritLgiRPvjU4_lSHNA) [Discord](https://discord.gg/akNQvpK3U4) [Vtubie](https://vtubie.com/kuma-berlin/)  </strong> |
-| ![KumaBerlin](https://static-cdn.jtvnw.net/jtv_user_pictures/57496cc3-a714-4397-9261-073e176ef126-profile_image-300x300.png)|
 
 | [Kumcior ](https://twitch.tv/Kumcior) |
 | ----- |
@@ -1767,14 +1735,6 @@
 | <strong>[Instagram](https://www.instagram.com/lunisthemoon/) [Youtube](https://www.youtube.com/c/TheMoonLunis)  </strong> |
 | ![LunisTheMoon](https://static-cdn.jtvnw.net/jtv_user_pictures/a0a569e4-fef4-49bc-97b5-e692e8494a16-profile_image-300x300.png)|
 
-| [LurethVT ](https://twitch.tv/LurethVT) |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>Hey! I'm Lureth! I'm Vtuber that streams various games on Twitch.</span> |
-| 16.02.2021, 19:40:52 |
-| <strong>[Youtube](https://www.youtube.com/@LurethVT) [Twitter](https://twitter.com/LurethVT) [Youtube](https://www.youtube.com/channel/UCK100buWCrOLxqtudMLg7XA) [Tiktok](https://www.tiktok.com/@lurethvt)  </strong> |
-| ![LurethVT](https://static-cdn.jtvnw.net/jtv_user_pictures/325edd25-d059-4476-bba4-5906067a1b97-profile_image-300x300.png)|
-
 | [maciekVR ](https://twitch.tv/maciekVR) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -1891,7 +1851,6 @@
 | <strong>affiliate</strong> |
 | <span>Meiko - Part time streamer, Full Time Hazard Magnet</span> |
 | 13.03.2019, 17:32:00 |
-| <strong>[Twitter](https://twitter.com/MeikoDrive) [Youtube](https://www.youtube.com/@meikodrive) [Youtube](https://www.youtube.com/@meikodrivevods)  </strong> |
 | ![meikodrive](https://static-cdn.jtvnw.net/jtv_user_pictures/7dcee51f-e51e-427c-9459-0389f5c59401-profile_image-300x300.png)|
 
 | [merek_toja ](https://twitch.tv/merek_toja) |
@@ -2836,13 +2795,6 @@
 | <strong>[Youtube](https://www.youtube.com/@skyeclovis) [Discord](https://discord.gg/FFESqEJWnv) [Twitter](https://twitter.com/SkyeClovis) [Tiktok](https://www.tiktok.com/@skyeclovis6)  </strong> |
 | ![SkyeClovis](https://static-cdn.jtvnw.net/jtv_user_pictures/e6b1966b-a3e0-4a6c-a61c-b151e260d6ac-profile_image-300x300.png)|
 
-| [sleepykatsu_ ](https://twitch.tv/sleepykatsu_) |
-| ----- |
-| <strong>non affiliate</strong> |
-| <span>zajonc</span> |
-| 3.09.2022, 16:47:01 |
-| ![sleepykatsu_](https://static-cdn.jtvnw.net/jtv_user_pictures/f0919385-b508-4a72-9a84-22c273cede1c-profile_image-300x300.png)|
-
 | [SleepyRami ](https://twitch.tv/SleepyRami) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -2956,14 +2908,6 @@
 | 29.12.2016, 10:13:51 |
 | <strong>[Twitter](https://twitter.com/strixboi) [Discord](https://discord.com/invite/QXCBhfWnc5) [Youtube](https://www.youtube.com/c/Strixboi)  </strong> |
 | ![Strix_Kappa](https://static-cdn.jtvnw.net/jtv_user_pictures/47a1656c-c5ce-46e3-8ac0-b5da92f15d08-profile_image-300x300.png)|
-
-| [strwberrykittya ](https://twitch.tv/strwberrykittya) |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>Nyako Nya! Hi and welcome I'm Fluffy Ashley known common as AoiAshurii too ^.^ Hope you like me 'n my streams! I'm a lil silly cat that Has nu brain 🍰🐈 ⚠I'M A MINOR! SO NO NSFW STUFF PLEASE⚠️</span> |
-| 28.02.2021, 18:49:48 |
-| <strong>[Twitter](https://twitter.com/AoiAshuriiCh) [Youtube](https://www.youtube.com/channel/UCEPRYE8wjbj7LCYth4jXWgQ) [Strawberrykittya.carrd](https://strawberrykittya.carrd.co/) [Ko-fi](https://ko-fi.com/O4O6E19NX)  </strong> |
-| ![strwberrykittya](https://static-cdn.jtvnw.net/jtv_user_pictures/d77dc985-28b4-4905-807f-8b3e770f13ed-profile_image-300x300.png)|
 
 | [Sulni_ ](https://twitch.tv/Sulni_) |
 | ----- |
@@ -3106,14 +3050,6 @@
 | <strong>[Twitter](https://twitter.com/TheTiredDemon_)  </strong> |
 | ![TheTiredDemon](https://static-cdn.jtvnw.net/jtv_user_pictures/33050943-9eb7-469c-87e3-557bc6e75f81-profile_image-300x300.jpeg)|
 
-| [tiny__bronco ](https://twitch.tv/tiny__bronco) |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>Casual JRPG streamer. Game dev, otaku & hobbist artist.</span> |
-| 15.05.2013, 19:09:48 |
-| <strong>[Instagram](https://www.instagram.com/tiny_bronco/) [Discord](https://discord.gg/WTr9ZP4kVm) [Osu.ppy](https://osu.ppy.sh/u/1000601) [Youtube](https://www.youtube.com/channel/UCasKBcctLW_6SDDuJ1mq2bw)  </strong> |
-| ![tiny__bronco](https://static-cdn.jtvnw.net/jtv_user_pictures/b6d8e5d1-543e-4edf-b93b-3effe54ea472-profile_image-300x300.png)|
-
 | [TinyBlueDream ](https://twitch.tv/TinyBlueDream) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -3121,13 +3057,6 @@
 | 9.09.2018, 16:41:57 |
 | <strong>[Instagram](https://www.instagram.com/tinyblue_dream/) [Discord](https://discord.gg/GjdQGsU)  </strong> |
 | ![TinyBlueDream](https://static-cdn.jtvnw.net/jtv_user_pictures/510ff9c7-421e-429d-8537-78dc2b226dc9-profile_image-300x300.jpeg)|
-
-| [TomfooleryVT ](https://twitch.tv/TomfooleryVT) |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>I am the King of Fools and controller of the cosmos! Come join in the chaos with the crazy cosmic jester! I do voice acting/impressions and gaming!</span> |
-| 27.03.2018, 04:24:10 |
-| ![TomfooleryVT](https://static-cdn.jtvnw.net/jtv_user_pictures/cd853831-ccd4-40d5-a2db-e0a2337a7669-profile_image-300x300.png)|
 
 | [torbi3l ](https://twitch.tv/torbi3l) |
 | ----- |
@@ -3152,14 +3081,6 @@
 | 4.12.2020, 21:38:18 |
 | <strong>[Discord](https://discord.gg/2TYkBuyKt5) [Youtube](https://www.youtube.com/@TotalnaPorazkaa/about)  </strong> |
 | ![Totalna_Porazka](https://static-cdn.jtvnw.net/jtv_user_pictures/47627a88-5470-4f0b-a7ab-b20dcca34e1b-profile_image-300x300.png)|
-
-| [trashmousey ](https://twitch.tv/trashmousey) |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>siema</span> |
-| 24.04.2021, 10:51:22 |
-| <strong>[Twitter](https://twitter.com/Mogu_VT)  </strong> |
-| ![trashmousey](https://static-cdn.jtvnw.net/jtv_user_pictures/bb683bfb-8f03-4b93-9c5c-e12935d6a9cb-profile_image-300x300.png)|
 
 | [Truchlo ](https://twitch.tv/Truchlo) |
 | ----- |
@@ -3271,14 +3192,6 @@
 | 10.05.2016, 09:58:38 |
 | <strong>[Instagram](https://www.instagram.com/vasirii/) [Twitter](https://twitter.com/vasirii) [Discord](https://discord.gg/grzfZzzZu7)  </strong> |
 | ![vasirii](https://static-cdn.jtvnw.net/jtv_user_pictures/a14756b9-30a6-4b80-8394-f8284d804925-profile_image-300x300.png)|
-
-| [vei ](https://twitch.tv/vei) |
-| ----- |
-| <strong>partner</strong> |
-| <span>veibae@mythictalent.com for business 📈i dont have an instagram stop asking</span> |
-| 26.07.2015, 03:54:50 |
-| <strong>[Twitter](https://twitter.com/Veibae) [Youtube](https://www.youtube.com/channel/UCsBFeCb82qOXyUP19nmD9xw) [Discord](https://discord.gg/vei)  </strong> |
-| ![vei](https://static-cdn.jtvnw.net/jtv_user_pictures/639305d3-1451-44a5-a8b1-1710458d7de8-profile_image-300x300.png)|
 
 | [VenusiaVT ](https://twitch.tv/VenusiaVT) |
 | ----- |
