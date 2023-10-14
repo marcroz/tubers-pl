@@ -236,14 +236,6 @@
 | 9.08.2020, 14:20:28 |
 | ![Ardov_](https://static-cdn.jtvnw.net/jtv_user_pictures/12c89d17-618d-400a-add0-623257b2e4e4-profile_image-300x300.png)|
 
-| [Arinn_ttv ](https://twitch.tv/Arinn_ttv) |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>Hejo!~ Jestem Arinn, weeb ze specyficznym poczuciem humoru :3 </span> |
-| 4.01.2022, 15:43:12 |
-| <strong>[Discord](https://discord.gg/JjQH7YkS69) [Instagram](https://www.instagram.com/arinn_ttv/) [Youtube](https://www.youtube.com/@ArinnkaTTV/featured) [Tiktok](https://www.tiktok.com/@arinn_ttv) [Twitter](https://twitter.com/Arin_Waifu?t=d2xUooBW0NldPfAB4oOP5A&s=09)  </strong> |
-| ![Arinn_ttv](https://static-cdn.jtvnw.net/jtv_user_pictures/e10ad764-b3bd-401b-ae25-874d6de0a073-profile_image-300x300.png)|
-
 | [arisuneko_art ](https://twitch.tv/arisuneko_art) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -1813,14 +1805,6 @@
 | 10.01.2021, 21:59:11 |
 | <strong>[Youtube](https://www.youtube.com/channel/UCeKT57BZ9nLjR9sER-t-BYg) [Twitter](https://twitter.com/magurochizuru) [Youtube](https://www.youtube.com/channel/UCybx-K2HKOfsLhEeFUdgpXw)  </strong> |
 | ![magurochizuru](https://static-cdn.jtvnw.net/jtv_user_pictures/2d7ee210-cebc-4dcc-aa01-5eb148bcf2e9-profile_image-300x300.png)|
-
-| [MamciaCherry ](https://twitch.tv/MamciaCherry) |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>Energiczna Mamuśka z humorem 18+, lubię dobre żarty ALE JESZCZE BARDZIEJ uwielbiam dobre jedzonko. Na twitchu jestem od godz. 19,  5/6 dni w tygodniu, A NA DISCORDZIE CODZIENNIE. Baw się dobrze słodziaku **buziaki**</span> |
-| 7.10.2019, 21:45:40 |
-| <strong>[Discord](https://discord.gg/6VVJafxu7Z) [Twitter](https://twitter.com/MaagicHerry) [Instagram](https://www.instagram.com/magic_herry/) [Tipply](https://tipply.pl/u/magicherry) [Tiktok](https://www.tiktok.com/@magic_herry)  </strong> |
-| ![MamciaCherry](https://static-cdn.jtvnw.net/jtv_user_pictures/af5337c4-4b4e-4443-842d-b61cd4e519e9-profile_image-300x300.png)|
 
 | [Maoska ](https://twitch.tv/Maoska) |
 | ----- |
