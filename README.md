@@ -368,14 +368,6 @@
 | <strong>[Instagram](https://www.instagram.com/biogamerka/) [Youtube](https://www.youtube.com/channel/UCDeioymIPIH_Zs2XA6d4aUw) [Facebook](https://www.facebook.com/BioGamerka-101040858552285/?notif_id=1611617391981606&notif_t=page_fan&ref=notif)  </strong> |
 | ![BioGamerka](https://static-cdn.jtvnw.net/jtv_user_pictures/1f474333-30a6-4731-891b-7b497366e8ed-profile_image-300x300.jpeg)|
 
-| [BlackquillCh  in memoriam](https://twitch.tv/BlackquillCh) |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>Yoooooo! Tutaj BlackQuill! Jestem polskim VTuberem samurajem. Głównie gram w gry iiiii to tyle xD</span> |
-| 10.05.2021, 18:12:56 |
-| <strong>[Twitter](https://twitter.com/BlackquillC) [Youtube](https://www.youtube.com/channel/UCUstNuYZV1J03B9ASpboivA) [Tiktok](https://www.tiktok.com/@blackquillch?lang=en)  </strong> |
-| ![BlackquillCh](https://static-cdn.jtvnw.net/jtv_user_pictures/3426e6db-174c-49e8-aba8-afaf711fb13d-profile_image-300x300.png)|
-
 | [BlackReven ](https://twitch.tv/BlackReven) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -718,7 +710,7 @@
 | [DryadYumeiko ](https://twitch.tv/DryadYumeiko) |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Streaming helps me create more. It makes my fear less powerful. It is my motivation.</span> |
+| <span>[Due to my bad condition I will stream less. Please be patient.] Streaming helps me create more. It makes my fear less powerful. It is my motivation.</span> |
 | 18.02.2022, 13:47:37 |
 | <strong>[Instagram](https://www.instagram.com/dryad_yumeiko/)  </strong> |
 | ![DryadYumeiko](https://static-cdn.jtvnw.net/jtv_user_pictures/55d192b6-2807-4ab0-9722-488cc0d43147-profile_image-300x300.png)|
@@ -738,6 +730,13 @@
 | 23.04.2020, 02:25:50 |
 | <strong>[Youtube](https://www.youtube.com/channel/UCoVfCit9xjYnsOGn7z6lxMQ) [Instagram](https://instagram.com/dumdemon_keira?igshid=YmMyMTA2M2Y=) [Twitter](https://twitter.com/DumDemon_Keira?t=J_ktkmduqodoJ9_v3F2Y3g&s=09) [Discord](https://discord.gg/H65U64pJBh) [Linktr](https://linktr.ee/DumDemon_Keira)  </strong> |
 | ![DumDemon_Keira](https://static-cdn.jtvnw.net/jtv_user_pictures/cc59b75e-7db6-4181-b780-e6d390912ab9-profile_image-300x300.png)|
+
+| [EasyVlogger ](https://twitch.tv/EasyVlogger) |
+| ----- |
+| <strong>non affiliate</strong> |
+| <span>hejo gram w gry bo tak :)</span> |
+| 27.10.2019, 16:12:15 |
+| ![EasyVlogger](https://static-cdn.jtvnw.net/jtv_user_pictures/625bdb29-b0b9-4d94-8c8b-66d567a6b744-profile_image-300x300.jpeg)|
 
 | [eichinlive ](https://twitch.tv/eichinlive) |
 | ----- |
@@ -1510,6 +1509,13 @@
 | <span></span> |
 | 12.01.2023, 18:24:45 |
 | ![kraksuuu](https://static-cdn.jtvnw.net/jtv_user_pictures/8fe0099f-f224-4c81-b09f-077983cee937-profile_image-300x300.png)|
+
+| [KresiarzNekromanta ](https://twitch.tv/KresiarzNekromanta) |
+| ----- |
+| <strong>non affiliate</strong> |
+| <span>Shadow Man Cometh...</span> |
+| 11.01.2021, 17:21:03 |
+| ![KresiarzNekromanta](https://static-cdn.jtvnw.net/jtv_user_pictures/c08fe65a-c5d3-4178-a805-d955328a23ca-profile_image-300x300.png)|
 
 | [KrisU_chiha ](https://twitch.tv/KrisU_chiha) |
 | ----- |
@@ -3180,6 +3186,14 @@
 | <strong>[Twitter](https://twitter.com/utafukuyoshi)  </strong> |
 | ![utafukuyoshi](https://static-cdn.jtvnw.net/jtv_user_pictures/8e9c0cd1-a594-4cf3-964a-15453b320e89-profile_image-300x300.png)|
 
+| [vahntanabe ](https://twitch.tv/vahntanabe) |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>G̶i̶r̶a̶f̶f̶e̶ Qilin VTuber ୧ ‧₊˚ 🍮 ⋅ ☆ | ৻(  •̀ ᗜ •́  ৻)</span> |
+| 26.11.2020, 16:43:38 |
+| <strong>[Twitter](https://twitter.com/wtnb_mary) [Ko-fi](https://ko-fi.com/hnzw_eerika) [Youtube](https://www.youtube.com/c/MaryWatanabe) [Tiktok](https://www.tiktok.com/@wtnb.mary)  </strong> |
+| ![vahntanabe](https://static-cdn.jtvnw.net/jtv_user_pictures/52754a8a-e84c-45b0-958f-31d2ee5c6eb0-profile_image-300x300.png)|
+
 | [Vakirii ](https://twitch.tv/Vakirii) |
 | ----- |
 | <strong>non affiliate</strong> |
@@ -3282,14 +3296,6 @@
 | 5.02.2018, 17:21:13 |
 | <strong>[Discord](https://discord.gg/ZwQVwzr)  </strong> |
 | ![wasker97](https://static-cdn.jtvnw.net/jtv_user_pictures/e106575f-ddf6-41a3-85fd-f2acea781c36-profile_image-300x300.png)|
-
-| [watanabe_mary ](https://twitch.tv/watanabe_mary) |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>G̶i̶r̶a̶f̶f̶e̶ Qilin VTuber ୧ ‧₊˚ 🍮 ⋅ ☆ | ৻(  •̀ ᗜ •́  ৻)</span> |
-| 26.11.2020, 16:43:38 |
-| <strong>[Twitter](https://twitter.com/wtnb_mary) [Ko-fi](https://ko-fi.com/hnzw_eerika) [Youtube](https://www.youtube.com/c/MaryWatanabe) [Tiktok](https://www.tiktok.com/@wtnb.mary)  </strong> |
-| ![watanabe_mary](https://static-cdn.jtvnw.net/jtv_user_pictures/52754a8a-e84c-45b0-958f-31d2ee5c6eb0-profile_image-300x300.png)|
 
 | [Wiedzmin111 ](https://twitch.tv/Wiedzmin111) |
 | ----- |
