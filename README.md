@@ -1,3 +1,5 @@
+# [Atkualna tierlista](https://tiermaker.com/create/polscy-twitchowi-vtuberzy-1354953-5)
+
 | [10WiktoriQ100 ](https://twitch.tv/10WiktoriQ100) |
 | ----- |
 | <strong>affiliate</strong> |
