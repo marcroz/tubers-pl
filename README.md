@@ -1,5 +1,3 @@
-# [Atkualna tierlista](https://tiermaker.com/create/polscy-twitchowi-vtuberzy-1354953-5)
-
 | [10WiktoriQ100 ](https://twitch.tv/10WiktoriQ100) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -72,7 +70,7 @@
 | [Agnes_arts_ ](https://twitch.tv/Agnes_arts_) |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Hi! I'm Agnes, I mostly draw, play games and rig in live2D 👉👈 hope you'll stay for a while ^ ^</span> |
+| <span>Hi! I'm Agnes, I mostly draw, rig in live2D and play games 👉👈 hope you'll stay for a while ^ ^</span> |
 | 30.04.2014, 17:11:28 |
 | <strong>[Mobile.twitter](https://mobile.twitter.com/agnes_arts_) [Instagram](https://www.instagram.com/agnes_arts_/) [Tiktok](https://www.tiktok.com/@agnes_arts_) [Ko-fi](https://ko-fi.com/agnes_arts_) [Discord](https://discord.gg/vh7rmNp7Cu)  </strong> |
 | ![Agnes_arts_](https://static-cdn.jtvnw.net/jtv_user_pictures/640ac515-5300-4ad8-85c8-8e0c5202018d-profile_image-300x300.png)|
@@ -681,7 +679,7 @@
 | <span>hi! call me dolliechu, I like to draw and I play games. My pronouns are they/them or it/its, PL: on/jego</span> |
 | 24.07.2019, 12:31:07 |
 | <strong>[Twitter](https://twitter.com/dolliechuuu) [Youtube](https://www.youtube.com/channel/UCWMX8vZSp5CQTM9XQmfQ6Cw) [Youtube](https://www.youtube.com/channel/UCDgexaViqgHeLij9cc3ZRxA) [Instagram](https://www.instagram.com/dolliechuuu/) [Tiktok](https://www.tiktok.com/@dolliechuuu)  </strong> |
-| ![dolliechu](https://static-cdn.jtvnw.net/jtv_user_pictures/58db167f-5b37-4a1d-9dd4-b59786e15a1b-profile_image-300x300.png)|
+| ![dolliechu](https://static-cdn.jtvnw.net/jtv_user_pictures/24b4af90-ab45-40c3-aaff-881eeeacb321-profile_image-300x300.png)|
 
 | [Doni152 ](https://twitch.tv/Doni152) |
 | ----- |
@@ -1279,7 +1277,7 @@
 | <span>Przygłupi stworek o imieniu bocia. Jestem kurzem. Proszę, zmieć mnie na szufelkę i wyrzuć do śmietnika. </span> |
 | 26.11.2020, 20:45:43 |
 | <strong>[Twitter](https://twitter.com/kabociaVT)  </strong> |
-| ![kabocia](https://static-cdn.jtvnw.net/jtv_user_pictures/d9076477-ae84-40cb-ab7f-29d0f1f9d256-profile_image-300x300.png)|
+| ![kabocia](https://static-cdn.jtvnw.net/jtv_user_pictures/7e686964-ae12-4bd0-b02b-45a0389fd21c-profile_image-300x300.png)|
 
 | [KaffiTaru ](https://twitch.tv/KaffiTaru) |
 | ----- |
@@ -1625,7 +1623,7 @@
 | <span>REDEBUT 28TH OCTOBER 12PM CEST!</span> |
 | 6.05.2020, 13:58:45 |
 | <strong>[Twitter](https://twitter.com/krissu_lee) [Instagram](https://www.instagram.com/leekrissu_/) [Discord](https://discord.gg/uqfK24e) [Youtube](https://www.youtube.com/channel/UCoxXlTeKl7FblmR01j3ORSg) [Leekrissu.carrd](https://leekrissu.carrd.co/)  </strong> |
-| ![LeeKrissu](https://yt3.googleusercontent.com/TWS6vpAPWlEA_Si0UPPKRefGYRtgkhM-QwMhrDJfNeGJgn8UNUM9L3ynKldqvSwl7yLPcBJjOg=s176-c-k-c0x00ffffff-no-rj)|
+| ![LeeKrissu](https://static-cdn.jtvnw.net/jtv_user_pictures/883ca812-2cee-4fef-a8f1-39f1f3ac5881-profile_image-300x300.png)|
 
 | [Lenilack ](https://twitch.tv/Lenilack) |
 | ----- |
@@ -1908,7 +1906,7 @@
 | <span>Jestem Mikulia - początkująca vtuberka, która dostarczy Ci sporo rozrywki!  Ze mną na pewno porozmawiasz, zobaczysz jak czasem intuje gierki, a czasem jestem mvp i nawet się przy tym uśmiechniesz. Kocham roleplay, mmorpg, moba i survival. Zapraszam na streamki! Bardzo się staram, żeby było fajnie.</span> |
 | 13.10.2018, 22:14:00 |
 | <strong>[Instagram](https://www.instagram.com/mikuliauwu/) [Youtube](https://www.youtube.com/channel/UC3VOpCXdaQECR5YdY8JXKHQ)  </strong> |
-| ![mikuliauwu](https://static-cdn.jtvnw.net/jtv_user_pictures/e0d79865-a2c2-4751-8665-48d74ec36ede-profile_image-300x300.png)|
+| ![mikuliauwu](https://static-cdn.jtvnw.net/jtv_user_pictures/98cc5027-5d25-4a85-a235-b289506455df-profile_image-300x300.png)|
 
 | [MilicaRisca ](https://twitch.tv/MilicaRisca) |
 | ----- |
@@ -2062,7 +2060,7 @@
 | [morrinyah ](https://twitch.tv/morrinyah) |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Hello everynyan! Z tej strony Morrigan. Jestem vtuberką streamującą z modelem kociej artystki. Na streamkach klikam w gierki takie jak honkai, genshin, tft, ligunia i tez rysuję! Zapraszam do wspólnej zabawy ze mną i z chatem!</span> |
+| <span>(nie)Mały degenerat w internecie ze słabym sprzętem klikający w gierki online i czasem odpalający streamy. Taki krótki opis mnie. Na imię mi Natasza, siema, ale wolę Morri. </span> |
 | 22.02.2021, 07:04:34 |
 | <strong>[Discord](https://discord.gg/yjUYQJef4P) [Twitter](https://twitter.com/morrinyahVT) [Trello](https://trello.com/invite/b/9coDnp3m/ATTIa1d022c9bbc5dfd398e1594c4ec4f52c7CD77829/morrinyah-commissions)  </strong> |
 | ![morrinyah](https://static-cdn.jtvnw.net/jtv_user_pictures/96ef4bf6-4046-4aca-a063-a0fed49ca8ed-profile_image-300x300.png)|
@@ -2224,13 +2222,13 @@
 | <strong>[Discord](https://discord.gg/SydRe4AKEt) [Kick](https://kick.com/neontetrix) [Tiktok](https://www.tiktok.com/@neontetrix) [Instagram](https://www.instagram.com/neontetrix/) [Toyhou](https://toyhou.se/NeoNTeTriX/characters)  </strong> |
 | ![NeoN_TeTriX](https://static-cdn.jtvnw.net/jtv_user_pictures/9ca6ed67-d1ce-4524-a59f-b269e554dc2f-profile_image-300x300.png)|
 
-| [NezumiMimaru ](https://twitch.tv/NezumiMimaru) |
+| [NezumiKumomi ](https://twitch.tv/NezumiKumomi) |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Hi! I am Nezumi and I'm a Polish VTuber! A mouse artist, fascinated with manga and anime. Hope we will have a lot of fun together! || Part of VPoland! || Layout @kiranami_ch</span> |
+| <span>Hi! I am Nezumi an VArtist, Live 2D artist & rigger! I hope we're going to have a good time together☁️ Commissions open!</span> |
 | 26.08.2020, 15:34:16 |
 | <strong>[Streamelements](https://streamelements.com/nezumimimaru/tip) [Twitter](https://twitter.com/NezumiMimaru) [Youtube](https://www.youtube.com/channel/UC8NAeUcggBiPESDAQTZjnVw) [Discord](https://discord.gg/rKMyUdnKE8)  </strong> |
-| ![NezumiMimaru](https://static-cdn.jtvnw.net/jtv_user_pictures/b754d851-50e3-4c89-a23e-a4fe3d1e67ae-profile_image-300x300.png)|
+| ![NezumiKumomi](https://static-cdn.jtvnw.net/jtv_user_pictures/06145c4c-c62e-4395-bdc0-3772b5418eb4-profile_image-300x300.png)|
 
 | [Nianshie ](https://twitch.tv/Nianshie) |
 | ----- |
@@ -2359,13 +2357,13 @@
 | <strong>[Twitter](https://twitter.com/OrcanTyr) [Discord](https://discord.gg/xJmz2SP69x) [Ko-fi](https://ko-fi.com/orcan)  </strong> |
 | ![OrcanTyr](https://static-cdn.jtvnw.net/jtv_user_pictures/cb29fb79-e0ad-4eae-805a-434cc71b55cb-profile_image-300x300.png)|
 
-| [Orchidia92 ](https://twitch.tv/Orchidia92) |
+| [Orchidia ](https://twitch.tv/Orchidia) |
 | ----- |
 | <strong>partner</strong> |
 | <span>Cześć jestem Orchidia. Streamuje głównie w tygodniu po godzinie 18:00 czasem zdarzy się i w weekendy. Zobaczycie u mnie dużo gier azjatyckich jak Genshin Impact czy Naraka: Bladepoint i inne. Cenię sobie dobrą atmosferę i duuuużo gadam.</span> |
 | 6.01.2017, 12:04:21 |
 | <strong>[Youtube](https://www.youtube.com/channel/UCcQckR8HEZxzYYPGbHU5hvQ) [Discord](https://discord.gg/6sS3FMDuNC) [Instagram](https://www.instagram.com/orchidia92games/) [Tiktok](https://www.tiktok.com/@orchidia92) [Http://orchigaming](http://orchigaming.pl/)  </strong> |
-| ![Orchidia92](https://cdn.discordapp.com/attachments/989095141874749470/1161672507758223380/image.png)|
+| ![Orchidia](https://cdn.discordapp.com/attachments/989095141874749470/1161672507758223380/image.png)|
 
 | [pablokentonare ](https://twitch.tv/pablokentonare) |
 | ----- |
@@ -2449,7 +2447,7 @@
 | [PoonkiePie ](https://twitch.tv/PoonkiePie) |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Hejka! Jestem Poonkie, w sumie dopiero zaczynam :P Staram się, aby na transmisjach panowała miła atmosfera - zostaniesz z nami?</span> |
+| <span>Hewwo! Tu Ponki! Gramy, rysujemy, gadamy, rozbijamy się tirkiem na trasach - dołączysz do nas? </span> |
 | 20.03.2014, 19:54:27 |
 | <strong>[Discord](https://discord.com/invite/bwpdNsfh5u) [Instagram](https://www.instagram.com/poonkiepie) [Http://www.tiktok](http://www.tiktok.com/@poonkiepie)  </strong> |
 | ![PoonkiePie](https://static-cdn.jtvnw.net/jtv_user_pictures/0c804b88-aab4-4527-8d3b-321838dfc1eb-profile_image-300x300.png)|
@@ -2629,7 +2627,7 @@
 | [samiibuns ](https://twitch.tv/samiibuns) |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>SUPER FUN SERIOUS BIG CHUNGUS - streaming during the week 6pm cest</span> |
+| <span>Rabbit full of the funiiStreaming Monday, Tuesday, Saturday and Sunday!</span> |
 | 1.04.2021, 22:37:22 |
 | <strong>[Twitter](https://twitter.com/SamiiBuns) [Streamelements](https://streamelements.com/samiibuns/tip) [Vgen](https://vgen.co/Sami)  </strong> |
 | ![samiibuns](https://static-cdn.jtvnw.net/jtv_user_pictures/959d9c5f-2592-4031-86de-255c5478a7b5-profile_image-300x300.png)|
@@ -2648,7 +2646,7 @@
 | <span>Hewlo!! I'm Saura, comfy dinosaur VTuber that enjoys chilling with chat ꈍ ᴗ ꈍ I mostly stream my visual design commissions process, but you can also expect to see variety of games!</span> |
 | 28.08.2022, 20:28:32 |
 | <strong>[Twitter](https://twitter.com/intent/user?screen_name=saurawr_) [Discord](https://discord.gg/yDtRN9sMNK) [Youtube](https://www.youtube.com/@saurawr_) [Streamelements](https://streamelements.com/saurawr/tip) [Saurawr](https://saurawr.com/)  </strong> |
-| ![saurawr](https://static-cdn.jtvnw.net/jtv_user_pictures/4a2bccd1-6c7d-4af6-94c7-5a07d5b14304-profile_image-300x300.png)|
+| ![saurawr](https://static-cdn.jtvnw.net/jtv_user_pictures/5be7c4a0-b3dc-47d1-8136-19193e82b2eb-profile_image-300x300.png)|
 
 | [schwi__ ](https://twitch.tv/schwi__) |
 | ----- |
@@ -2704,13 +2702,13 @@
 | <strong>[Discord](https://discord.gg/a4NXk9RJfx) [Twitter](https://twitter.com/Seylinna) [Tipply](https://tipply.pl/u/seylinne)  </strong> |
 | ![seylinne](https://static-cdn.jtvnw.net/jtv_user_pictures/4c16a90c-23e8-464d-9670-8d6b8c5aa566-profile_image-300x300.jpeg)|
 
-| [SG_Mozzie ](https://twitch.tv/SG_Mozzie) |
+| [Sg_Mozzie ](https://twitch.tv/Sg_Mozzie) |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>💜 | Siemka wszystkim dzięki że wbiliście na mój kanał. Jestem zwykłą dziewczyną, która czasem ma dziwne i nie konwencjonalne pomysły. Mam nadzieję, że zostaniesz tutaj na dłużej. </span> |
+| <span>ᕙ✿ᕗ Witam tutaj NanaoSenpai. Jestem VTuberką od niedawna i witam cię u mnie ukochana duszyczko, mam nadzieje że zawitasz tutaj na dłużej. Gwarantuje że otrzymasz dużo atencji ode mnie ᕙ✿ᕗ</span> |
 | 5.07.2021, 20:29:31 |
 | <strong>[Tipply](https://tipply.pl/u/sg_mozzie) [Youtube](https://www.youtube.com/channel/UChToj2pwGnaRRKjoVZAXiAQ) [Discord](https://discord.gg/uWbaA8gRH7)  </strong> |
-| ![SG_Mozzie](https://static-cdn.jtvnw.net/jtv_user_pictures/9b959dfd-a6b9-4ede-9bb3-aa23418aef41-profile_image-300x300.png)|
+| ![Sg_Mozzie](https://static-cdn.jtvnw.net/jtv_user_pictures/9b959dfd-a6b9-4ede-9bb3-aa23418aef41-profile_image-300x300.png)|
 
 | [shaato ](https://twitch.tv/shaato) |
 | ----- |
@@ -2788,7 +2786,7 @@
 | <span>Yo, I am a person who likes rhythm games and for Christmas 2021 I managed to Rank my first map in the game : osu!</span> |
 | 11.12.2019, 18:36:45 |
 | <strong>[Virtualyoutuber.fandom](https://virtualyoutuber.fandom.com/pl/wiki/SilverYako)  </strong> |
-| ![SilverYako](https://static-cdn.jtvnw.net/jtv_user_pictures/91b53bbc-5009-4609-9c68-4a3a12504b2d-profile_image-300x300.png)|
+| ![SilverYako](https://static-cdn.jtvnw.net/jtv_user_pictures/bbc837a3-73e3-4a68-a85f-abbdf8d8b1a5-profile_image-300x300.png)|
 
 | [SiopeR ](https://twitch.tv/SiopeR) |
 | ----- |
@@ -3039,7 +3037,7 @@
 | [Thalsa ](https://twitch.tv/Thalsa) |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>🌸 Lover of everything that's paranormal, supernatural and horror-like, depressed procrastinator and your favourite noob. 🌸</span> |
+| <span>🦴 Niesforna anime mommy z rozdwojeniem jaźni i potrzebą atencji. Miłośniczka wszystkiego co związane jest z tematami paranormalnymi, horrorami oraz fantastyką. 🦴 </span> |
 | 25.05.2017, 11:35:42 |
 | <strong>[Twitter](https://twitter.com/ThalsaVT)  </strong> |
 | ![Thalsa](https://static-cdn.jtvnw.net/jtv_user_pictures/051793d6-4713-4d0c-97f1-8c05322cab42-profile_image-300x300.png)|
@@ -3122,7 +3120,7 @@
 | <span>Streamuję proces tworzenia komiksów słuchając darcia mordy :))</span> |
 | 5.09.2020, 13:35:34 |
 | <strong>[Linktr](https://linktr.ee/Tunrida)  </strong> |
-| ![Tunrunn](https://static-cdn.jtvnw.net/jtv_user_pictures/ae6241c8-60b5-49ad-b4c2-c6617faf212c-profile_image-300x300.png)|
+| ![Tunrunn](https://static-cdn.jtvnw.net/jtv_user_pictures/1ee1f747-0146-4f01-b77a-a108c137bb6e-profile_image-300x300.png)|
 
 | [tvD3STY ](https://twitch.tv/tvD3STY) |
 | ----- |
@@ -3291,14 +3289,6 @@
 | <strong>[Twitter](https://twitter.com/wtnb_mary) [Ko-fi](https://ko-fi.com/hnzw_eerika) [Youtube](https://www.youtube.com/c/MaryWatanabe) [Tiktok](https://www.tiktok.com/@wtnb.mary)  </strong> |
 | ![watanabe_mary](https://static-cdn.jtvnw.net/jtv_user_pictures/52754a8a-e84c-45b0-958f-31d2ee5c6eb0-profile_image-300x300.png)|
 
-| [wiedzmainternetu ](https://twitch.tv/wiedzmainternetu) |
-| ----- |
-| <strong>non affiliate</strong> |
-| <span>「︎pre-debut PL vtuber 」Początkująca pngtuberka! Dzień dobry, jestem Wiedźma Internetu, ale możecie mówić do mnie Wiera. Kocham szydełkować, czytać książki oraz pisać własne twory.</span> |
-| 22.03.2018, 19:57:49 |
-| <strong>[Youtube](https://www.youtube.com/@wiedzmainternetu) [Linktr](https://linktr.ee/wiedzmainternetu)  </strong> |
-| ![wiedzmainternetu](https://static-cdn.jtvnw.net/jtv_user_pictures/765a6aa1-de11-478e-ba42-65b1c9c96e87-profile_image-300x300.png)|
-
 | [Wiedzmin111 ](https://twitch.tv/Wiedzmin111) |
 | ----- |
 | <strong>affiliate</strong> |
@@ -3417,7 +3407,7 @@
 | [xmyszaxvt ](https://twitch.tv/xmyszaxvt) |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Grywam sobie w gierki Jestem w nie totalną Pepegą, jednak sie tym nie przejmuje. Jestem Nie-binarna osóbką, używam damskich zaimków iii jakos leci! :D</span> |
+| <span>Grywam sobie w gierki Jestem w nie totalną Pepegą. Jestem Nie-binarna osóbk i używam damskich zaimków.</span> |
 | 7.11.2021, 10:45:08 |
 | <strong>[Tipply](https://tipply.pl/u/xmyszaxvt) [Twitter](https://twitter.com/XmyszyXVT) [Discord](https://discord.gg/gd8taSuykv)  </strong> |
 | ![xmyszaxvt](https://static-cdn.jtvnw.net/jtv_user_pictures/73a03834-ce82-4d23-bdad-2e8448ad3f1f-profile_image-300x300.png)|
@@ -3536,7 +3526,7 @@
 | <strong>non affiliate</strong> |
 | <span>GO BIG OR GO HOME BESTIES!!!!!</span> |
 | 2.09.2023, 00:05:36 |
-| ![yuukitsu](https://static-cdn.jtvnw.net/jtv_user_pictures/01c26634-e195-437b-b886-d43d1375d0df-profile_image-300x300.png)|
+| ![yuukitsu](https://static-cdn.jtvnw.net/jtv_user_pictures/fb3b4280-0dfa-45a3-95b5-554586357041-profile_image-300x300.jpeg)|
 
 | [zenek_kun ](https://twitch.tv/zenek_kun) |
 | ----- |
@@ -3548,7 +3538,7 @@
 
 | [ZiPeK25 ](https://twitch.tv/ZiPeK25) |
 | ----- |
-| <strong>non affiliate</strong> |
+| <strong>affiliate</strong> |
 | <span>Witam na moim kanale na którym gram w różne gry. Przepraszam za jakość i ścinki, mam internet radiowy 50Mb/s i dość już przestarzały komputer, Mam nadzieję, że mimo to będziesz się dobrze bawił(a). Zapraszam też na mój główny kanał na YouTube.</span> |
 | 15.07.2012, 23:18:46 |
 | <strong>[Youtube](https://youtube.com/@ZiPeK25) [Twitter](https://twitter.com/ZiPeK25) [Myanimelist](https://myanimelist.net/profile/ZiPeK25)  </strong> |
