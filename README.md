@@ -1,7 +1,9 @@
 # [Atkualna tierlista](https://marcroz.github.io)
 
 ```
-Kryteria są bardzo luźne i rozmyte, wystarczy że ktoś kiedykolwiek krył się za specyficznym modelem i ma konto na twitchu żeby tu się dostać, jak masz jakiekolwiek wątpliwości to pisz do mnie na X.com @sylay15 lub otwórz issue tutaj
+Kryteria są bardzo luźne i rozmyte,
+ wystarczy że ktoś kiedykolwiek krył się za specyficznym modelem i ma konto na twitchu żeby tu się dostać,
+ jak masz jakiekolwiek wątpliwości to pisz do mnie na X.com @sylay15 lub otwórz issue tutaj
 ``` 
 
 | [10WiktoriQ100](https://twitch.tv/10WiktoriQ100) |
