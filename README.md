@@ -1,6 +1,7 @@
 # [Atkualna tierlista](https://marcroz.github.io)
 
 lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciomafifity(ttv), osób z [spisu polskich vtuberów](https://virtualyoutuber.fandom.com/pl/wiki/Spis_VTuberów_z_Polski), oraz osób dodanych manualnie przeze mnie
+
 ```Kryteria są bardzo luźne i rozmyte, wystarczy że ktoś kiedykolwiek krył się za specyficznym modelem i ma konto na twitchu żeby tu się dostać(w granicach zdrowego rozsądku powiedzmy), jak masz jakiekolwiek wątpliwości to pisz do mnie na X.com @sylay15 lub otwórz issue tutaj``` 
 
 | [10WiktoriQ100](https://twitch.tv/10WiktoriQ100) |
