@@ -1863,7 +1863,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>Bear tuber here for some good time~                                                                                                             Let's enjoy it together ʕ•ᴥ•ʔ                                                                              </span> |
 | 12.07.2022, 21:26:13 |
 | <strong>[Twitter](https://twitter.com/MeiFei_theBear) [Youtube](https://www.youtube.com/channel/UC02aihTz8rqOtFA4mxmS2LA) [Streamlabs](https://streamlabs.com/meifei_thebear/tip) [Discord](https://discord.com/invite/V5d4hgSRat) [Throne](https://throne.com/meifei_thebear)  </strong> |
-| ![meifei_thebear](https://static-cdn.jtvnw.net/jtv_user_pictures/c5b37899-3692-4567-b677-0c05688c59e5-profile_image-300x300.png)|
+| ![meifei_thebear](https://static-cdn.jtvnw.net/jtv_user_pictures/6cb769a0-9f2c-4ec3-9615-eecd904d7b5a-profile_image-300x300.png)|
 
 | [meikodrive](https://twitch.tv/meikodrive) |
 | ----- |
@@ -2075,7 +2075,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>(nie)Mały degenerat w internecie ze słabym sprzętem klikający w gierki online i czasem odpalający streamy. Taki krótki opis mnie. Na imię mi Natasza, siema, ale wolę Morri. </span> |
 | 22.02.2021, 07:04:34 |
 | <strong>[Discord](https://discord.gg/yjUYQJef4P) [Twitter](https://twitter.com/morrinyahVT) [Trello](https://trello.com/invite/b/9coDnp3m/ATTIa1d022c9bbc5dfd398e1594c4ec4f52c7CD77829/morrinyah-commissions)  </strong> |
-| ![morrinyah](https://static-cdn.jtvnw.net/jtv_user_pictures/96ef4bf6-4046-4aca-a063-a0fed49ca8ed-profile_image-300x300.png)|
+| ![morrinyah](https://static-cdn.jtvnw.net/jtv_user_pictures/91f20858-2891-4f48-adbc-dc344be716f2-profile_image-300x300.png)|
 
 | [mrhappy991](https://twitch.tv/mrhappy991) |
 | ----- |
@@ -2666,7 +2666,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>Witaj. Jestem Sebastian . Mam 27 lat. Na tym kanale będziecie się dobrze bawić z różnych serii. Gry jakie tu będą ogrywane to głównie Hunt Showdown Genshin Inpact  , Phasmofobia,  i wiele innych. Zapraszam Cię do zostawienia followka :) </span> |
 | 16.10.2022, 21:23:19 |
 | <strong>[Facebook](https://www.facebook.com/profile.php?id=100091345478686)  </strong> |
-| ![sebek96vt](https://static-cdn.jtvnw.net/jtv_user_pictures/6a9f7f64-0303-4d7a-b40c-853c42b6685a-profile_image-300x300.png)|
+| ![sebek96vt](https://static-cdn.jtvnw.net/jtv_user_pictures/8e113680-2271-4419-bfac-974c6f1d3d15-profile_image-300x300.png)|
 
 | [seijun_kobayashi](https://twitch.tv/seijun_kobayashi) |
 | ----- |
