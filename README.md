@@ -133,7 +133,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>affiliate</strong> |
 | <span>[PL/ENG VTUBER] Siemka! Akira Ai, największa fanka drzemek i gier (szczególnie rytmicznych), czasem coś sobie porysuję - w sumie to nie wiem co tutaj robię :'DD</span> |
 | 20.10.2022, 21:31:23 |
-| <strong>[Vgen](https://vgen.co/akiraivt) [Trello](https://trello.com/b/vphTW2HS/commisions-trello) [Twitter](https://twitter.com/akiraivt) [Steamcommunity](https://steamcommunity.com/id/akiraivt/)  </strong> |
+| <strong>[Vgen](https://vgen.co/akiraivt) [Throne](https://throne.com/akiraivt) [Twitter](https://twitter.com/akiraivt) [Steamcommunity](https://steamcommunity.com/id/akiraivt/)  </strong> |
 | ![akiraivt](https://static-cdn.jtvnw.net/jtv_user_pictures/9afef282-d7d3-42dc-b18a-bd839a838a7f-profile_image-300x300.png)|
 
 | [AlbertFaustVT](https://twitch.tv/AlbertFaustVT) |
@@ -740,6 +740,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>non affiliate</strong> |
 | <span>hejo gram w gry bo tak :)</span> |
 | 27.10.2019, 16:12:15 |
+| <strong>[Youtube](https://www.youtube.com/channel/UCeqSsnAaC-_ALe9Nmm_XPfA)  </strong> |
 | ![EasyVlogger](https://static-cdn.jtvnw.net/jtv_user_pictures/625bdb29-b0b9-4d94-8c8b-66d567a6b744-profile_image-300x300.jpeg)|
 
 | [eichinlive](https://twitch.tv/eichinlive) |
@@ -1163,7 +1164,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>affiliate</strong> |
 | <span>witamy serdecznie z tej strony Zuzu i Polka,Jesteśmy ghoulami (tak jemy ludzi) z eksperymentów z korporacji Miskun dlatego mamy Miskun jako nasze nazwisko i inne imiona bo przez przemianę wymazali nam pamięć i wspomnienia dodatku mamy ten sam głos ;)</span> |
 | 6.06.2021, 02:41:13 |
-| <strong>[Istotymiskun.carrd](https://istotymiskun.carrd.co/) [Twitter](https://twitter.com/IstotaZuZuPolka) [Youtube](https://www.youtube.com/channel/UCiN7GkkLVGDr4M7qyJFfIkQ) [Tiktok](https://www.tiktok.com/@miskunzuzu_polka)  </strong> |
+| <strong>[Istotymiskun.carrd](https://istotymiskun.carrd.co/) [Twitter](https://twitter.com/IstotaZuZuPolka) [Youtube](https://www.youtube.com/@IstotaZPLive/featured) [Youtube](https://www.youtube.com/channel/UCiN7GkkLVGDr4M7qyJFfIkQ) [Tiktok](https://www.tiktok.com/@miskunzuzu_polka)  </strong> |
 | ![IstotaZuzuPolka](https://static-cdn.jtvnw.net/jtv_user_pictures/4704b69e-d505-4abe-a31e-0a9aa4478eac-profile_image-300x300.png)|
 
 | [itsTeta](https://twitch.tv/itsTeta) |
@@ -1674,6 +1675,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>affiliate</strong> |
 | <span>Witam wszystkich, tutaj blady chłop, co powraca co pewien czas na Twitcha, ale stara się powrócić na czas dłuższy, czy też w końcu na stałe. Lubię rysować, grywać w giereczki i siedzieć na Twitchu (ale zazwyczaj na czyiś streamkach). </span> |
 | 12.06.2019, 16:09:32 |
+| <strong>[Instagram](https://www.instagram.com/only_one_lime_lover/)  </strong> |
 | ![LimonkaAwn](https://static-cdn.jtvnw.net/jtv_user_pictures/97890e4c-5c48-40ab-9e57-ce6cfa78df14-profile_image-300x300.png)|
 
 | [Lintherka](https://twitch.tv/Lintherka) |
@@ -2066,7 +2068,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>affiliate</strong> |
 | <span>Hi~! 🌟I'm Mori the Scarlet Witch ✨ Pre-debut vtuber ✨ Sometimes I stream in Polish! ✨ Hope to see you around ✨ Pfp made by https://twitter.com/MiniErdora</span> |
 | 30.03.2015, 15:42:29 |
-| <strong>[Twitter](https://twitter.com/morifirewitch) [Tiktok](https://www.tiktok.com/@mori_fire_witch) [Youtube](https://www.youtube.com/@MoriFireWitch/)  </strong> |
+| <strong>[Twitter](https://twitter.com/morifirewitch) [Youtube](https://www.youtube.com/@MoriFireWitch/) [Tiktok](https://www.tiktok.com/@mori_fire_witch)  </strong> |
 | ![MoriFireWitch](https://static-cdn.jtvnw.net/jtv_user_pictures/b4263833-0c3b-4ce3-8cb1-8eb104fc8fa0-profile_image-300x300.jpeg)|
 
 | [morrinyah](https://twitch.tv/morrinyah) |
@@ -2082,7 +2084,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>non affiliate</strong> |
 | <span>Siemka szalony kot grający w vr czat i nie tylko </span> |
 | 11.07.2013, 16:35:08 |
-| <strong>[Tiktok](https://www.tiktok.com/@happyvr998) [Instagram](https://www.instagram.com/the_best_frends7762/) [Discord](https://discord.gg/9YEqczDV)  </strong> |
+| <strong>[Tiktok](https://www.tiktok.com/@happyvr998) [Instagram](https://www.instagram.com/the_best_frends7762/) [Discord](https://discord.gg/Ukedbf72J8)  </strong> |
 | ![mrhappy991](https://static-cdn.jtvnw.net/jtv_user_pictures/bba77856-8926-47ea-96af-144b38ae0185-profile_image-300x300.png)|
 
 | [MrowAVT](https://twitch.tv/MrowAVT) |
@@ -2232,7 +2234,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>affiliate</strong> |
 | <span>Hi! I am Nezumi an VArtist, Live 2D artist & rigger! I hope we're going to have a good time together☁️ Commissions open!</span> |
 | 26.08.2020, 15:34:16 |
-| <strong>[Streamelements](https://streamelements.com/nezumimimaru/tip) [Twitter](https://twitter.com/NezumiMimaru) [Youtube](https://www.youtube.com/channel/UC8NAeUcggBiPESDAQTZjnVw) [Discord](https://discord.gg/rKMyUdnKE8)  </strong> |
+| <strong>[Vgen](https://vgen.co/takerucchichan) [Twitter](https://twitter.com/NezumiKumomi) [Youtube](https://www.youtube.com/channel/UC8NAeUcggBiPESDAQTZjnVw)  </strong> |
 | ![NezumiKumomi](https://static-cdn.jtvnw.net/jtv_user_pictures/06145c4c-c62e-4395-bdc0-3772b5418eb4-profile_image-300x300.png)|
 
 | [Nianshie](https://twitch.tv/Nianshie) |
@@ -3259,7 +3261,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>affiliate</strong> |
 | <span>✿ Jestem NekoNeta ✿ Noob ✿ Princesa Cringu ✿ I have only one brain cell ✿ Klnę jak Twój stary po wywiadówce ✿ Gram w rożne gry ✿ Głównie horrory i jakieś mniejsze produkcje typu cozy lub trochę mniej cozy lub o japierdolę ginę co chwilę ✿ Miłego oglądania jak się męczę! (=🝦 ༝ 🝦=) 18+✿ </span> |
 | 27.08.2023, 21:55:17 |
-| <strong>[Tiktok](https://www.tiktok.com/@vtnekoneta) [Twitter](https://twitter.com/VTNekoNeta) [Discord](https://discord.gg/R2Ftmrfc)  </strong> |
+| <strong>[Tiktok](https://www.tiktok.com/@vtnekoneta) [Twitter](https://twitter.com/VTNekoNeta) [Discord](https://discord.com/invite/jTvAen7D)  </strong> |
 | ![VTNekoNeta](https://static-cdn.jtvnw.net/jtv_user_pictures/80b60143-2240-483d-9ffe-fe214e76f363-profile_image-300x300.png)|
 
 | [vtsina](https://twitch.tv/vtsina) |
