@@ -111,6 +111,13 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>[Discord](https://discord.gg/9kjYq7egFn) [Twitter](https://twitter.com/aisugii) [Instagram](https://www.instagram.com/_aisugi/) [Tiktok](https://www.tiktok.com/@aisugiii) [Youtube](https://www.youtube.com/channel/UC1-XgL_ougJLyaEkCaz-sYg)  </strong> |
 | ![aisugii](https://static-cdn.jtvnw.net/jtv_user_pictures/7a2e1dac-e533-4767-b127-81c56c2099a1-profile_image-300x300.png)|
 
+| [AisuruSan](https://twitch.tv/AisuruSan)  |
+| ----- |
+| <strong>non affiliate</strong> |
+| <span>Just a young amateur 2D/3D artist who wants to be happy... (✿◡‿◡) || An aspiring PLVTuber.</span> |
+| 13.08.2016, 18:46:17 |
+| ![AisuruSan](https://static-cdn.jtvnw.net/jtv_user_pictures/2afd3516-efea-46c5-8b7b-53c437292e61-profile_image-300x300.png)|
+
 | [akame_chaos](https://twitch.tv/akame_chaos)  |
 | ----- |
 | <strong>affiliate</strong> |
@@ -2333,6 +2340,13 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>[Tipply](https://tipply.pl/u/pacisiapl) [Discord](https://discord.com/invite/HTS3Zw6gj5) [Instagram](https://www.instagram.com/p/Clytv-KtG5c/?igshid=YmMyMTA2M2Y=) [Steamcommunity](https://steamcommunity.com/profiles/76561199410944776/)  </strong> |
 | ![pacisiapl](https://static-cdn.jtvnw.net/jtv_user_pictures/b4cbb4df-0907-49be-9b9f-8c9882c709c7-profile_image-300x300.png)|
 
+| [Pajtero301](https://twitch.tv/Pajtero301)  |
+| ----- |
+| <strong>non affiliate</strong> |
+| <span>Zapalony gracz i tryhard w wszystkie gierki</span> |
+| 19.05.2022, 19:26:03 |
+| ![Pajtero301](https://static-cdn.jtvnw.net/jtv_user_pictures/b2096ef7-5f76-4832-8cc1-9db3f8fdb126-profile_image-300x300.png)|
+
 | [pandwielka](https://twitch.tv/pandwielka)  |
 | ----- |
 | <strong>affiliate</strong> |
@@ -2387,6 +2401,13 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | 9.06.2019, 17:36:49 |
 | <strong>[Youtube](https://www.youtube.com/channel/UC4JezkkUf5g7R3FQaWhsQhw) [Twitter](https://twitter.com/Piotyr1)  </strong> |
 | ![piotyr_rower](https://static-cdn.jtvnw.net/jtv_user_pictures/5d03b307-9197-42fa-b7d7-becaab432805-profile_image-300x300.png)|
+
+| [plum_meowVT](https://twitch.tv/plum_meowVT)  |
+| ----- |
+| <strong>non affiliate</strong> |
+| <span>Słodki koci Vtuber z jeszcze słodszym Sugar w kieszonce :3</span> |
+| 21.01.2016, 21:46:16 |
+| ![plum_meowVT](https://static-cdn.jtvnw.net/jtv_user_pictures/35c13878-5421-40db-b854-6f79dcb8731c-profile_image-300x300.png)|
 
 | [PoonkiePie](https://twitch.tv/PoonkiePie)  |
 | ----- |
@@ -3432,6 +3453,13 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>Hejka! Jestem żółtym pokemonem tworzącym obrazki. Dopiero zaczynam stawiać kroczki w streamowaniu. Jeśli podoba Ci się atmosfera moich streamów, chcesz pomóc rozwijać mój kanał - zostań na dłużej! Twoje wsparcie jest niezmiernie motywujące! 💛</span> |
 | 22.02.2021, 00:25:57 |
 | ![Yuriko_Moji](https://static-cdn.jtvnw.net/jtv_user_pictures/5623b51e-dc29-4726-b5fe-438e923b5b72-profile_image-300x300.png)|
+
+| [Yuuki_VR](https://twitch.tv/Yuuki_VR)  |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>Polish Cringe Vtuber</span> |
+| 16.01.2016, 18:33:09 |
+| ![Yuuki_VR](https://static-cdn.jtvnw.net/jtv_user_pictures/8964096e-2f3b-4151-b246-921e9ed6e636-profile_image-300x300.png)|
 
 | [yuukitsu](https://twitch.tv/yuukitsu)  |
 | ----- |
