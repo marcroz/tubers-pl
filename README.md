@@ -615,6 +615,13 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>[Twitter](https://twitter.com/DeltaZeroPLVT2) [Youtube](https://www.youtube.com/channel/UChgzZ5REuy0klAcg7Mxsbcw?app=desktop)  </strong> |
 | ![DeltaZeroPLVT](https://static-cdn.jtvnw.net/jtv_user_pictures/f3c31e6d-70bf-4a33-8eee-531c39719edc-profile_image-300x300.png)|
 
+| [DesuVT](https://twitch.tv/DesuVT)  |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>Desuś aka Desu | Polish vtuber | Przyjazny i bardzo miły vTubowy zagrajmer. #vTuber #PLVtuber</span> |
+| 14.02.2022, 16:12:00 |
+| ![DesuVT](https://static-cdn.jtvnw.net/jtv_user_pictures/9d5d1a5b-9ede-45a2-8359-26789107ff55-profile_image-300x300.png)|
+
 | [DetektywSniperKaczucha](https://twitch.tv/DetektywSniperKaczucha)  |
 | ----- |
 | <strong>affiliate</strong> |
