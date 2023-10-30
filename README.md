@@ -2597,14 +2597,6 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>[Twitter](https://twitter.com/RisaVtuber) [Discord](https://discord.gg/2WbP3wPAsQ) [Youtube](https://www.youtube.com/channel/UCZuwRVl1cxKmqneizfsGXog)  </strong> |
 | ![RisaSwirldrop](https://static-cdn.jtvnw.net/jtv_user_pictures/7871de55-5753-4c0c-9fb7-91b831c39be6-profile_image-300x300.png)|
 
-| [RokitaTheDemonTurret](https://twitch.tv/RokitaTheDemonTurret)  |
-| ----- |
-| <strong>affiliate</strong> |
-| <span></span> |
-| 29.11.2014, 08:38:03 |
-| <strong>[Discord](https://discord.gg/Cg6bVJRGDz) [Twitter](https://twitter.com/DiablikRokita)  </strong> |
-| ![RokitaTheDemonTurret](https://static-cdn.jtvnw.net/user-default-pictures-uv/215b7342-def9-11e9-9a66-784f43822e80-profile_image-300x300.png)|
-
 | [Rottinio](https://twitch.tv/Rottinio)  |
 | ----- |
 | <strong>non affiliate</strong> |
