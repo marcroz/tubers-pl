@@ -2091,7 +2091,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>(nie)Mały degenerat w internecie ze słabym sprzętem klikający w gierki online i czasem odpalający streamy. Taki krótki opis mnie. Na imię mi Natasza, siema, ale wolę Morri. </span> |
 | 22.02.2021, 07:04:34 |
 | <strong>[Discord](https://discord.gg/yjUYQJef4P) [Twitter](https://twitter.com/morrinyahVT) [Trello](https://trello.com/invite/b/9coDnp3m/ATTIa1d022c9bbc5dfd398e1594c4ec4f52c7CD77829/morrinyah-commissions)  </strong> |
-| ![morrinyah](https://static-cdn.jtvnw.net/jtv_user_pictures/91f20858-2891-4f48-adbc-dc344be716f2-profile_image-300x300.png)|
+| ![morrinyah](https://static-cdn.jtvnw.net/jtv_user_pictures/81d4667b-5a6b-42a8-9f9b-4a0b8aad660f-profile_image-300x300.png)|
 
 | [mrhappy991](https://twitch.tv/mrhappy991)  |
 | ----- |
@@ -2282,14 +2282,6 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>[Discord](https://discord.gg/W6nksUDkmN) [Twitter](https://twitter.com/queen_nikolcia)  </strong> |
 | ![nikolciavt](https://static-cdn.jtvnw.net/jtv_user_pictures/5480d06a-22e4-4571-8def-30b40d1b1327-profile_image-300x300.png)|
 
-| [Nilsee_](https://twitch.tv/Nilsee_)  |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>Siemka jestem Nilse ale też mówią na mnie Królik :)</span> |
-| 8.05.2021, 23:08:57 |
-| <strong>[Tipply](https://tipply.pl/u/nilse) [Instagram](https://www.instagram.com/nilse_klulik/)  </strong> |
-| ![Nilsee_](https://static-cdn.jtvnw.net/jtv_user_pictures/ea8271b2-7335-4f85-a76e-0a55a24c2c14-profile_image-300x300.png)|
-
 | [Nishi_Yuuma](https://twitch.tv/Nishi_Yuuma) **He/Him** |
 | ----- |
 | <strong>affiliate</strong> |
@@ -2430,14 +2422,6 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>Hejka nazywam się Paweł. Mam nadzieje że będziesz się tu dobrze bawić :D</span> |
 | 2.08.2018, 18:40:52 |
 | ![Paweelo4](https://cdn.discordapp.com/attachments/989095141874749470/1160997536912392212/image.png)|
-
-| [PeGie255](https://twitch.tv/PeGie255)  |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>Robi czasem filmy na Youtube oraz streamuje ze 2 razy tygodniowo. Zawodowy nihilista oraz pirat. Marzy o masowej eksterminacji Toadów z uniwersum Super Mario Bros. Głownie lajwuje horrory, ale czasami też i inne rzeczy.</span> |
-| 11.02.2019, 21:36:10 |
-| <strong>[Youtube](https://www.youtube.com/channel/UCn1BOXxz86A4IEUzElZb2AA) [Twitter](https://twitter.com/Pegie2551)  </strong> |
-| ![PeGie255](https://static-cdn.jtvnw.net/jtv_user_pictures/89c8c33f-188e-4f47-80a8-da3c0fa2d4f4-profile_image-300x300.png)|
 
 | [Petrus_VT](https://twitch.tv/Petrus_VT)  |
 | ----- |
@@ -3362,14 +3346,6 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | 22.12.2016, 18:59:37 |
 | ![WolfMatRek](https://static-cdn.jtvnw.net/jtv_user_pictures/ccf7435b-3b80-440c-8ffd-58d4cf1eff4f-profile_image-300x300.png)|
 
-| [Wrrnator](https://twitch.tv/Wrrnator)  |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>Mroźnych uścisków! To ja, Wrrnator. Na moich streamach rządzi Dead by Daylight, Outlast Trials, Phasmophobia i 7 Days to Die. Czasem wkradnie się inna gra lub sesja roleplay. Dołącz do zabawy!</span> |
-| 18.06.2014, 23:20:39 |
-| <strong>[Youtube](https://www.youtube.com/channel/UCQacZ7wEv0eN_HXEDgwU5CA) [Instagram](https://www.instagram.com/wrrnator/) [Twitter](https://twitter.com/wrrnator) [Tiktok](https://www.tiktok.com/@wrrnator) [Twitch](https://www.twitch.tv/wrrnator)  </strong> |
-| ![Wrrnator](https://static-cdn.jtvnw.net/jtv_user_pictures/8f78f299-7e41-4ae8-b240-c909370ca740-profile_image-300x300.png)|
-
 | [WujekBrajan](https://twitch.tv/WujekBrajan)  |
 | ----- |
 | <strong>partner</strong> |
@@ -3554,7 +3530,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>Bawię się w VTubera i tyle w sumie, dużo drę ryja mimo że nie musze.</span> |
 | 2.09.2023, 00:05:36 |
 | <strong>[Tiktok](https://www.tiktok.com/@yuukitsux?_t=8fprwf4rlsa&_r=1) [Youtube](https://www.youtube.com/channel/UCl8sA3KF6K1wUlV-UZ5tL1w) [Twitter](https://twitter.com/kitsuuyuu?t=17PZ0jhdsi4ATnARfalP4A&s=09)  </strong> |
-| ![YuuKitsu](https://static-cdn.jtvnw.net/jtv_user_pictures/4259e6c9-23f4-4327-9cd5-a1977904fc47-profile_image-300x300.jpeg)|
+| ![YuuKitsu](https://static-cdn.jtvnw.net/jtv_user_pictures/e8d5d450-b7d2-4dae-8521-c7c6eaf50cf7-profile_image-300x300.png)|
 
 | [zenek_kun](https://twitch.tv/zenek_kun)  |
 | ----- |
