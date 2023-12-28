@@ -2138,14 +2138,6 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>[Twitter](https://twitter.com/100Mukuro) [Discord](https://discord.gg/ADNpAPSwCp) [Youtube](https://www.youtube.com/channel/UCytIYhf4Q5Fd_q-4iz1VRvA) [Ko-fi](https://ko-fi.com/mukuro100)  </strong> |
 | ![Mukuro100](https://static-cdn.jtvnw.net/jtv_user_pictures/6749ff5e-5f98-4d9f-b952-c2c9d6ba963c-profile_image-300x300.png)|
 
-| [murame2](https://twitch.tv/murame2)  |
-| ----- |
-| <strong>affiliate</strong> |
-| <span></span> |
-| 17.03.2021, 18:54:48 |
-| <strong>[Tipply](https://tipply.pl/u/kuronka)  </strong> |
-| ![murame2](https://static-cdn.jtvnw.net/user-default-pictures-uv/215b7342-def9-11e9-9a66-784f43822e80-profile_image-300x300.png)|
-
 | [n4jt1](https://twitch.tv/n4jt1) **She/Her** |
 | ----- |
 | <strong>affiliate</strong> |
@@ -3575,3 +3567,4 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | 20.12.2020, 21:17:33 |
 | <strong>[Youtube](https://www.youtube.com/channel/UC1Rh9wokRAnJNHYsmO_P4bw) [Instagram.com/_.zuexie_takoizu](https://www.instagram.com/_.zuexie_takoizu._/) [Twitter](https://twitter.com/Zuexie_Takoizu) [Discord](https://discord.gg/kXzwzCbs88) [Discord](https://discord.gg/3f9m7gX6gT)  </strong> |
 | ![zuexie_takoizu](https://static-cdn.jtvnw.net/jtv_user_pictures/5978335d-cdae-4dbf-88f2-0e31cab47f8b-profile_image-300x300.png)|
+
