@@ -1388,14 +1388,6 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>[Twitter](https://twitter.com/VtMajin)  </strong> |
 | ![Ken_Majin_VT](https://static-cdn.jtvnw.net/jtv_user_pictures/f736fab4-7afe-42c7-bb63-20b3132c0787-profile_image-300x300.png)|
 
-| [Kiciarzyna](https://twitch.tv/Kiciarzyna)  |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>Jestem Kasia, mam 25 lat i zaczynam swoją przygodę ze stream'owaniem. 😇 Głównie gram w League of Legends, myślę, że pojawią się również inne gry! 🤗 Mam nadzieję, że spędzimy razem miło czas! 🥰</span> |
-| 1.11.2021, 17:55:53 |
-| <strong>[Discord](https://discord.gg/CZhdVpQYyU) [Youtube](https://www.youtube.com/channel/UClXMpC4s6oFx5DrIvGINbkA) [Tiktok](https://www.tiktok.com/@kiciarzyna) [Instagram](https://www.instagram.com/kiciarzynax)  </strong> |
-| ![Kiciarzyna](https://static-cdn.jtvnw.net/jtv_user_pictures/75f41559-db04-48c1-9cd8-a101a291e649-profile_image-300x300.png)|
-
 | [KikoKitsune](https://twitch.tv/KikoKitsune)  |
 | ----- |
 | <strong>affiliate</strong> |
