@@ -735,14 +735,6 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>[Youtube](https://www.youtube.com/channel/UCLvv7rBEWYdAkHjUkQgMw-g) [Discord](https://discord.gg/BFPDdNHFGe) [Instagram](https://www.instagram.com/drunk_dem0n/) [Twitter](https://twitter.com/Shinobi_Walker)  </strong> |
 | ![drunk_demonek](https://static-cdn.jtvnw.net/jtv_user_pictures/cf6fb6f5-4986-4d73-8fcd-650be849b731-profile_image-300x300.png)|
 
-| [DryadYumeiko](https://twitch.tv/DryadYumeiko)  |
-| ----- |
-| <strong>affiliate</strong> |
-| <span> Streaming makes my fear less powerful. It is my motivation. [Lately streaming at nights, European time]</span> |
-| 18.02.2022, 13:47:37 |
-| <strong>[Instagram](https://www.instagram.com/dryad_yumeiko/)  </strong> |
-| ![DryadYumeiko](https://static-cdn.jtvnw.net/jtv_user_pictures/ebea9bcb-6089-4a0f-a938-53b651f2c91c-profile_image-300x300.jpeg)|
-
 | [Duella_](https://twitch.tv/Duella_) **She/Her** |
 | ----- |
 | <strong>affiliate</strong> |
@@ -2068,14 +2060,6 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | 22.02.2021, 07:04:34 |
 | <strong>[Discord](https://discord.gg/yjUYQJef4P) [Twitter](https://twitter.com/morrinyahVT) [Ko-fi](https://ko-fi.com/morrinyah)  </strong> |
 | ![morrinyah](https://static-cdn.jtvnw.net/jtv_user_pictures/3866b885-1af0-496d-8153-f0ac2c607679-profile_image-300x300.jpeg)|
-
-| [MrDesu_](https://twitch.tv/MrDesu_)  |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>Desu |30| Gamer/Cosplayer. Gram we wszystko i nic.</span> |
-| 14.02.2022, 16:12:00 |
-| <strong>[Tipply](https://tipply.pl/@MrDesu_) [Discord](https://discord.gg/sDztjQdRN6) [Twitter](https://twitter.com/MrDesu_) [Instagram](https://www.instagram.com/mrdesu_/) [Tiktok](https://www.tiktok.com/@mrdesu_)  </strong> |
-| ![MrDesu_](https://static-cdn.jtvnw.net/jtv_user_pictures/87fcbaa7-ea91-4184-9076-f1cdc70d630e-profile_image-300x300.png)|
 
 | [mrhappy991](https://twitch.tv/mrhappy991)  |
 | ----- |
