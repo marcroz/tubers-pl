@@ -86,7 +86,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>🏮A rookie on a mission to bring good fortune🏮</span> |
 | 10.06.2023, 04:04:54 |
 | <strong>[Twitter](https://twitter.com/ahichiru) [Discord](https://discord.gg/5VhGXm23Ev)  </strong> |
-| ![ahichiru](https://static-cdn.jtvnw.net/jtv_user_pictures/693d65a5-22a6-4a9f-9c2d-58a897cae98e-profile_image-300x300.jpeg)|
+| ![ahichiru](https://static-cdn.jtvnw.net/jtv_user_pictures/6b697e44-b12f-4fdb-9beb-0446d6573d88-profile_image-300x300.png)|
 
 | [Aikeji](https://twitch.tv/Aikeji)  |
 | ----- |
@@ -135,13 +135,20 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | 5.01.2021, 21:55:04 |
 | ![AkiiVT_](https://static-cdn.jtvnw.net/jtv_user_pictures/68cb7931-6f4f-4aed-b0f5-9237dc74e113-profile_image-300x300.png)|
 
-| [akiraivt](https://twitch.tv/akiraivt)  |
+| [akirsonn](https://twitch.tv/akirsonn)  |
 | ----- |
 | <strong>affiliate</strong> |
 | <span>[PL/ENG VTUBER] Siemka! Akira Ai, największa fanka drzemek i gier (szczególnie rytmicznych), czasem coś sobie porysuję - w sumie to nie wiem co tutaj robię :'DD</span> |
 | 20.10.2022, 21:31:23 |
 | <strong>[Vgen](https://vgen.co/akiraivt) [Throne](https://throne.com/akiraivt) [Twitter](https://twitter.com/akiraivt) [Steamcommunity](https://steamcommunity.com/id/akiraivt/)  </strong> |
-| ![akiraivt](https://static-cdn.jtvnw.net/jtv_user_pictures/7edd654d-63d8-41c9-9c5b-8aeceae21302-profile_image-300x300.png)|
+| ![akirsonn](https://static-cdn.jtvnw.net/jtv_user_pictures/7edd654d-63d8-41c9-9c5b-8aeceae21302-profile_image-300x300.png)|
+
+| [AkumaSama5](https://twitch.tv/AkumaSama5)  |
+| ----- |
+| <strong>non affiliate</strong> |
+| <span>Witajta wszyscy !!! Jestem Akuma (możecie mi też mówić Wojtek :) ). Tak mam model damski lecz jestem chłopem. Spokojnie dla mnie to tylko model nie gram postaci modelu. U mnie zobaczycie lola,dbd,valo,cs,fort,over2,r6 itd. Pogadankę o anime lub mange też mile widziana. Miłego oglądania !!! ;D</span> |
+| 9.10.2022, 12:33:16 |
+| ![AkumaSama5](https://static-cdn.jtvnw.net/jtv_user_pictures/0896cbec-4b88-4630-9498-109400b632a9-profile_image-300x300.png)|
 
 | [AlbertFaustVT](https://twitch.tv/AlbertFaustVT)  |
 | ----- |
@@ -189,7 +196,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>Witaj! Jestem Amarock, najpotężniejszy demon. Żarcik u mnie nie ma, pajacowania jak u innych vtuberów. Jestem normalnym 20-letnim człowiekiem, który mówi, co myśli, przy tym nienawidząc innych vtuberów.Mów mi Amarock/Amuś/Amok.</span> |
 | 21.01.2018, 16:17:07 |
 | <strong>[Facebook](https://www.facebook.com/Amarock-112259564881346/)  </strong> |
-| ![Amaroock](https://static-cdn.jtvnw.net/jtv_user_pictures/76a93b04-5556-43dd-852c-be48d9bbc6cc-profile_image-300x300.png)|
+| ![Amaroock](https://static-cdn.jtvnw.net/jtv_user_pictures/f038068b-c1aa-4e6c-a685-4f22195c3db8-profile_image-300x300.png)|
 
 | [Amdylt](https://twitch.tv/Amdylt)  |
 | ----- |
@@ -210,9 +217,9 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | [andusia](https://twitch.tv/andusia)  |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>SHY BABY STREAMER</span> |
+| <span>Andusia | VTuber | Jestem trochę głupia, boję się głośnych dźwięków i wyskakujących stworów w grach komputerowych</span> |
 | 21.03.2020, 23:37:00 |
-| <strong>[Discord](https://discord.gg/x6UzsP5Gcg) [Tiktok](https://www.tiktok.com/@andusia) [Andusia.tipo](https://andusia.tipo.live/) [Instagram](https://www.instagram.com/partycrash3r/) [Youtube](https://www.youtube.com/channel/UCnyUJST4cplvRCIbMQqXqRQ)  </strong> |
+| <strong>[Discord](https://discord.gg/x6UzsP5Gcg) [Tiktok](https://www.tiktok.com/@andusia) [Andusia.tipo](https://andusia.tipo.live/) [Instagram](https://www.instagram.com/partycrash3r/) [Youtube](https://www.youtube.com/channel/UCR1NFVdsa8xuw6J7Dd29SKA)  </strong> |
 | ![andusia](https://static-cdn.jtvnw.net/jtv_user_pictures/0d0e3088-04cf-4955-b85f-0012defc917a-profile_image-300x300.png)|
 
 | [AnxiousBeanVT](https://twitch.tv/AnxiousBeanVT) **He/They** |
@@ -339,7 +346,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>2D Artist/Illustrator, Live2D Rigger, Deity Vtuber.  Angel of Destruction. ☄️Still looking for a way back to my world☄️ </span> |
 | 27.11.2021, 23:09:11 |
 | <strong>[Instagram](https://www.instagram.com/_ayanetenshi_/) [Twitter](https://twitter.com/AyaneTenshi) [Tipo](https://tipo.live/p/ayanetenshi) [Trello](https://trello.com/b/dJ4ep2dj/ayankowe-komisze)  </strong> |
-| ![Ayane_Tenshi](https://static-cdn.jtvnw.net/jtv_user_pictures/ae76127a-7bba-4127-b66f-0d6dff33ca77-profile_image-300x300.png)|
+| ![Ayane_Tenshi](https://static-cdn.jtvnw.net/jtv_user_pictures/bf561d2d-8287-4b10-8a60-45f8770317b2-profile_image-300x300.png)|
 
 | [Aziulka](https://twitch.tv/Aziulka)  |
 | ----- |
@@ -394,7 +401,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>Jestem Polskim Vtuberem BlackReven. Miło mi Ciebie tutaj widzieć ( ͡^ ͜ʖ ͡^)­ ­ ­///­ ­ ­I'm BlackReven, a Polish Vtuber. It's great to see you here  ( ͡^ ͜ʖ ͡^)</span> |
 | 3.03.2012, 16:55:30 |
 | <strong>[Youtube](https://youtube.com/@BlackReven_vtuber) [Twitter](https://twitter.com/BlackReven_VT) [Tiktok](https://www.tiktok.com/@blackreven_vt)  </strong> |
-| ![BlackReven](https://static-cdn.jtvnw.net/jtv_user_pictures/c1c64a50-b44a-44fb-8336-ce9658dd67b0-profile_image-300x300.png)|
+| ![BlackReven](https://static-cdn.jtvnw.net/jtv_user_pictures/d77b62af-1cb1-40ce-9766-9d3e8e5495a1-profile_image-300x300.png)|
 
 | [blackskyen](https://twitch.tv/blackskyen)  |
 | ----- |
@@ -468,7 +475,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | [ChappyCherri](https://twitch.tv/ChappyCherri)  |
 | ----- |
 | <strong>partner</strong> |
-| <span>Siemkaaa!! Tu polska anime dziewczynka! XD Jestem liseł i wydaję z siebie dziwne dźwięki. Jest fajnie!</span> |
+| <span>Siemkaaa~! Jestem liseł i wydaję z siebie dziwne dźwięki. Jest fajnie!</span> |
 | 11.06.2022, 23:32:26 |
 | <strong>[Youtube](https://youtube.com/channel/UCaN8Fnu-R736akdejamenvQ) [Twitter](https://twitter.com/ChappyCherri) [Discord](https://discord.gg/chappycherri) [Tiktok](https://www.tiktok.com/@chappycherri)  </strong> |
 | ![ChappyCherri](https://static-cdn.jtvnw.net/jtv_user_pictures/58886dd7-88ac-46ad-95f4-6595cb54a742-profile_image-300x300.png)|
@@ -519,7 +526,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>Mały, kosmiczny Rex transmitujący głównie content VR ^^</span> |
 | 19.06.2020, 17:53:05 |
 | <strong>[Discord](https://discord.com/invite/BqPFBTsKBv) [Instagram](https://www.instagram.com/cosmyvr/) [Youtube](https://www.youtube.com/@CosmyRewind) [Facebook](https://www.facebook.com/SharikVR) [Steamcommunity](https://steamcommunity.com/groups/Cosmy)  </strong> |
-| ![CosmyVR](https://static-cdn.jtvnw.net/jtv_user_pictures/f2daa4e1-8b3a-4fda-af2c-8a888735302a-profile_image-300x300.png)|
+| ![CosmyVR](https://static-cdn.jtvnw.net/jtv_user_pictures/8a340452-1bd5-4727-a980-3b1f88255386-profile_image-300x300.png)|
 
 | [crudelis__](https://twitch.tv/crudelis__)  |
 | ----- |
@@ -534,7 +541,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>affiliate</strong> |
 | <span> VTuber Największa paranoja serwera EUNE </span> |
 | 27.10.2021, 18:59:23 |
-| ![Cybeeey](https://static-cdn.jtvnw.net/jtv_user_pictures/3c137867-050e-4746-8a67-507a672e3a0c-profile_image-300x300.png)|
+| ![Cybeeey](https://static-cdn.jtvnw.net/jtv_user_pictures/e4040256-8572-46ca-93c5-106f7eb39e51-profile_image-300x300.png)|
 
 | [Cynamoneq_](https://twitch.tv/Cynamoneq_)  |
 | ----- |
@@ -595,7 +602,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | [Davidb9310](https://twitch.tv/Davidb9310)  |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Gram we wszystko na co mam ochotę zaczynając od FPS kończąc na Symulatorach. Lubisz anime? również dobrze trafiłeś, tak wiec nie krępuj się zagadać, bo na pewno odpowiem :)</span> |
+| <span>[PL] Manakete Vtuber / Gamer (・∀・)ノ</span> |
 | 23.12.2011, 20:39:46 |
 | <strong>[Youtube](https://www.youtube.com/@Davidb9310) [Youtube](https://www.youtube.com/@Davidb9310VODs) [Discord](https://discord.gg/R3FTBkMEb2) [Twitter](https://twitter.com/Davidb9310) [Steamcommunity](https://steamcommunity.com/id/Davidb9310/)  </strong> |
 | ![Davidb9310](https://static-cdn.jtvnw.net/jtv_user_pictures/5d5140a8-1e83-4a12-97e7-5947ca764684-profile_image-300x300.png)|
@@ -616,25 +623,18 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>[Twitter](https://twitter.com/DeltaZeroPLVT2) [Youtube](https://www.youtube.com/channel/UChgzZ5REuy0klAcg7Mxsbcw?app=desktop)  </strong> |
 | ![DeltaZeroPLVT](https://static-cdn.jtvnw.net/jtv_user_pictures/f3c31e6d-70bf-4a33-8eee-531c39719edc-profile_image-300x300.png)|
 
-| [DesuVT](https://twitch.tv/DesuVT)  |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>Desu | Polish vTuber | Syn Nekomaty i śmiertelnika | Family friendly </span> |
-| 14.02.2022, 16:12:00 |
-| <strong>[Discord](https://discord.gg/sDztjQdRN6) [Twitter](https://twitter.com/DesuVT) [Instagram](https://www.instagram.com/_desuvt_/) [Tiktok](https://www.tiktok.com/@desuvt?lang=pl-PL)  </strong> |
-| ![DesuVT](https://static-cdn.jtvnw.net/jtv_user_pictures/87fcbaa7-ea91-4184-9076-f1cdc70d630e-profile_image-300x300.png)|
-
 | [DetektywSniperKaczucha](https://twitch.tv/DetektywSniperKaczucha)  |
 | ----- |
 | <strong>affiliate</strong> |
 | <span>kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa kwa</span> |
 | 12.11.2014, 17:06:53 |
-| ![DetektywSniperKaczucha](https://static-cdn.jtvnw.net/jtv_user_pictures/749536db-ae7a-4a1d-99c7-5524803100ae-profile_image-300x300.png)|
+| <strong>[Linktr](https://linktr.ee/detektywsniperkaczucha?utm_source=linktree_profile_share&ltsid=f01f8ea0-a298-47b0-a51f-0764ac4733f0) [Streamlabs](https://streamlabs.com/detektywsniperkaczucha/tip)  </strong> |
+| ![DetektywSniperKaczucha](https://static-cdn.jtvnw.net/jtv_user_pictures/110d9833-7479-445f-a791-5c793bdddd52-profile_image-300x300.png)|
 
 | [Deucel](https://twitch.tv/Deucel)  |
 | ----- |
 | <strong>partner</strong> |
-| <span>Damski degenerat o głosie wykastrowanego chłopca</span> |
+| <span>♡ Female degenerat and loud gremlin ♡ Streaming everyday ♡</span> |
 | 13.12.2020, 10:27:52 |
 | <strong>[Instagram](https://www.instagram.com/deuce_yuu/) [Twitter](https://twitter.com/Deucel11) [Discord](https://discord.gg/U48evVuyyd) [Youtube](https://www.youtube.com/channel/UCqCFXNnrYeqBTZmOvvAoxHQ) [Tiktok](https://www.tiktok.com/@deucel)  </strong> |
 | ![Deucel](https://cdn.discordapp.com/attachments/989095141874749470/1161001524789522564/image.png)|
@@ -721,10 +721,10 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 
 | [Draken_Kociakowski](https://twitch.tv/Draken_Kociakowski)  |
 | ----- |
-| <strong>non affiliate</strong> |
+| <strong>affiliate</strong> |
 | <span>PL 🐱 Hewo wszystkim jestem Draken, który szuka i się uczy nowych atrakcji i zabaw. Gdybyście chcieli mnie pouczyć to byłbym MEGA wdzięczny, każdy Follow to o 2 razy więcej stresu i wstydzenya~ 😳</span> |
 | 31.03.2021, 10:27:16 |
-| <strong>[X](https://x.com/Drakenowskii?t=U1nP-qJi88hYZhiYkiVDQg&s=09) [Tiktok](https://www.tiktok.com/@draken_kociakowski)  </strong> |
+| <strong>[Twitter](https://twitter.com/Drakenowskii) [Tiktok](https://www.tiktok.com/@draken_kociakowski)  </strong> |
 | ![Draken_Kociakowski](https://static-cdn.jtvnw.net/jtv_user_pictures/35376d52-3ad6-45e7-8f8b-a282d68f0131-profile_image-300x300.jpeg)|
 
 | [drunk_demonek](https://twitch.tv/drunk_demonek)  |
@@ -738,7 +738,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | [DryadYumeiko](https://twitch.tv/DryadYumeiko)  |
 | ----- |
 | <strong>affiliate</strong> |
-| <span> Streaming makes my fear less powerful. It is my motivation. [I'm streaming when I feel like it. There is no official schedule]</span> |
+| <span> Streaming makes my fear less powerful. It is my motivation. [Lately streaming at nights, European time]</span> |
 | 18.02.2022, 13:47:37 |
 | <strong>[Instagram](https://www.instagram.com/dryad_yumeiko/)  </strong> |
 | ![DryadYumeiko](https://static-cdn.jtvnw.net/jtv_user_pictures/ebea9bcb-6089-4a0f-a938-53b651f2c91c-profile_image-300x300.jpeg)|
@@ -953,13 +953,13 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | 11.04.2022, 17:18:54 |
 | ![G5030](https://static-cdn.jtvnw.net/jtv_user_pictures/5e6d4690-8de8-418a-ac1d-72f7ecc6f5d3-profile_image-300x300.png)|
 
-| [gadthedead](https://twitch.tv/gadthedead)  |
+| [gad_Gad_GAD](https://twitch.tv/gad_Gad_GAD)  |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Umar bug nieh żyje bug</span> |
+| <span>sprawdź se panele w opisie 🙄</span> |
 | 30.09.2014, 15:04:36 |
-| <strong>[Google](https://google.com/)  </strong> |
-| ![gadthedead](https://static-cdn.jtvnw.net/jtv_user_pictures/26c19181-c89e-40c1-b7a3-f2ee38ae5884-profile_image-300x300.png)|
+| <strong>[Youtube](https://www.youtube.com/@TenGadzik) [Discord](https://discord.gg/AEgCVBuVXH) [Gadartwork.myportfolio](https://gadartwork.myportfolio.com/) [Bohaterowie.fandom](https://bohaterowie.fandom.com/pl/wiki/Naruto_Uzumaki)  </strong> |
+| ![gad_Gad_GAD](https://static-cdn.jtvnw.net/jtv_user_pictures/26c19181-c89e-40c1-b7a3-f2ee38ae5884-profile_image-300x300.png)|
 
 | [goatielicious](https://twitch.tv/goatielicious)  |
 | ----- |
@@ -1004,10 +1004,10 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | [HaipaRemon](https://twitch.tv/HaipaRemon)  |
 | ----- |
 | <strong>non affiliate</strong> |
-| <span>Yo, im the perfect soda mix of chill and hyper, sweet and sour🍋🥤💚Cover Artist🎤🎶 | Game Developer🎮 | Content Creator🎥🎨ポランド人ですと日本語を勉強しているんですけど、よろしく！EN/PL/JP #vtuber #vtuberuprising #envtuber #plvtuber</span> |
+| <span>Yo, im the perfect soda mix of chill and hyper, sweet and sour🍋🥤💚Youtaite🎤🎶 | Game Developer🎮 | Content Creator🎥🎨ポランド人ですと日本語を勉強しているんですけど、よろしく！EN/PL/JP</span> |
 | 30.08.2021, 15:15:00 |
 | <strong>[Haiparemon.carrd](https://haiparemon.carrd.co/) [Twitter](https://twitter.com/HaipaRemon)  </strong> |
-| ![HaipaRemon](https://static-cdn.jtvnw.net/jtv_user_pictures/ca9ba375-2b73-4719-8677-925d5f40e9a1-profile_image-300x300.png)|
+| ![HaipaRemon](https://static-cdn.jtvnw.net/jtv_user_pictures/007030dc-9064-4329-aa42-a9d3fa023abd-profile_image-300x300.png)|
 
 | [Hakkasee](https://twitch.tv/Hakkasee)  |
 | ----- |
@@ -1094,7 +1094,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>Dream is something that keeps us all going!</span> |
 | 27.12.2020, 12:16:25 |
 | <strong>[Tiktok](https://www.tiktok.com/@runo_vt?_t=8cKAfCGLuo6&_r=1) [Picrew](https://picrew.me/en/image_maker/2133170)  </strong> |
-| ![Ho0ri_VT](https://static-cdn.jtvnw.net/jtv_user_pictures/f24c79aa-b92c-4d76-8181-a202657c630a-profile_image-300x300.png)|
+| ![Ho0ri_VT](https://static-cdn.jtvnw.net/jtv_user_pictures/dd91bde8-4be0-4e89-835a-5de5882f565e-profile_image-300x300.jpeg)|
 
 | [HorunOnizuka](https://twitch.tv/HorunOnizuka)  |
 | ----- |
@@ -1110,7 +1110,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>⸜(｡˃ ᵕ ˂ )⸝♡ Witaj zbłąkana duszyczko! Jesteś na kanale kociej wróżki, której specjalnymi talentami jest mieszkanka śmiechu Makłowicza i odpalanego malucha! Lubię gadać, więc spodziewaj się częstych potoków słów z moich ust. Lubię też poznawać nowych ludzi, więc jeśli tu jesteś - daj znać na czacie!</span> |
 | 16.01.2023, 15:05:05 |
 | <strong>[Discord](https://discord.gg/V2bDtAe7Sr) [Twitter](https://twitter.com/hoshichaan_) [Youtube](https://www.youtube.com/@hoshi196) [Tiktok](https://www.tiktok.com/@hoshichaan_)  </strong> |
-| ![hoshichaan_](https://static-cdn.jtvnw.net/jtv_user_pictures/628191d6-9922-4c6e-8a31-e610a0583b1a-profile_image-300x300.png)|
+| ![hoshichaan_](https://static-cdn.jtvnw.net/jtv_user_pictures/6dfb0292-ce41-4cef-a015-366fecd4249e-profile_image-300x300.png)|
 
 | [Hotarusama](https://twitch.tv/Hotarusama)  |
 | ----- |
@@ -1131,7 +1131,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | [Ignaryo](https://twitch.tv/Ignaryo)  |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Lokalny doomer - gram, jem, pracuje, a czasami nawet i pośpię.👹 I can talk in English too although except a very strong accent from my side. Goss Harag my beloved.</span> |
+| <span>Lokalny doomer - gram, jem, pracuje, a czasami nawet i pośpię.👹 I can talk in English too although expect a very strong accent from my side. Goss Harag my beloved.</span> |
 | 22.07.2017, 19:09:38 |
 | <strong>[Linktr](https://linktr.ee/ignaryo) [Twitter](https://twitter.com/ignaryu) [Tumblr](https://www.tumblr.com/blog/ignaryo) [Picarto](https://picarto.tv/Ignaryo/profile) [Steamcommunity](https://steamcommunity.com/id/ignaryo/)  </strong> |
 | ![Ignaryo](https://static-cdn.jtvnw.net/jtv_user_pictures/0f7c0ca2-3dfb-4ced-9aa5-d12ed6d34ed6-profile_image-300x300.png)|
@@ -1257,10 +1257,10 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | [JustDetka](https://twitch.tv/JustDetka)  |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>No cześć, Detka jestem. Po prostu Detka. Jeżeli tu trafiłeś to musiałeś mieć albo wielkiego pecha, albo wielkie szczęście. Niezależnie od przypadku zachęcam Cię do przycupnięcia tu na dłużej, czuj się mile widziany. Gram w komputer i rysuję, każdy znajdzie coś dla siebie! (｡•̀ᴗ-)✧</span> |
+| <span></span> |
 | 28.01.2023, 15:55:07 |
 | <strong>[Twitter](https://twitter.com/JustDetka) [Discord](https://discord.gg/c7VVP9rj)  </strong> |
-| ![JustDetka](https://static-cdn.jtvnw.net/jtv_user_pictures/2774222c-5db2-4fb2-844b-01897bcd14ac-profile_image-300x300.jpeg)|
+| ![JustDetka](https://static-cdn.jtvnw.net/jtv_user_pictures/3f72663f-5853-466a-acfa-1cf5db7598ba-profile_image-300x300.png)|
 
 | [JustKazik](https://twitch.tv/JustKazik)  |
 | ----- |
@@ -1399,10 +1399,10 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | [Kiciarzyna](https://twitch.tv/Kiciarzyna)  |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Jestem Kasia, mam 24 lata i dopiero zaczynam swoją przygodę ze stream'owaniem. 😇 Głównie gram w League of Legends, myślę, że pojawią się również inne gry! 🤗 Mam nadzieję, że spędzimy razem miło czas! 🥰</span> |
+| <span>Jestem Kasia, mam 25 lat i zaczynam swoją przygodę ze stream'owaniem. 😇 Głównie gram w League of Legends, myślę, że pojawią się również inne gry! 🤗 Mam nadzieję, że spędzimy razem miło czas! 🥰</span> |
 | 1.11.2021, 17:55:53 |
 | <strong>[Discord](https://discord.gg/CZhdVpQYyU) [Youtube](https://www.youtube.com/channel/UClXMpC4s6oFx5DrIvGINbkA) [Tiktok](https://www.tiktok.com/@kiciarzyna) [Instagram](https://www.instagram.com/kiciarzynax)  </strong> |
-| ![Kiciarzyna](https://static-cdn.jtvnw.net/jtv_user_pictures/ab7465e8-599b-47a5-a829-b9e3af91f71a-profile_image-300x300.png)|
+| ![Kiciarzyna](https://static-cdn.jtvnw.net/jtv_user_pictures/75f41559-db04-48c1-9cd8-a101a291e649-profile_image-300x300.png)|
 
 | [KikoKitsune](https://twitch.tv/KikoKitsune)  |
 | ----- |
@@ -1464,7 +1464,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>affiliate</strong> |
 | <span>I'm Koiwhy and I like to scream </span> |
 | 25.06.2018, 08:12:31 |
-| ![Koiwhyy](https://static-cdn.jtvnw.net/jtv_user_pictures/a956e401-efe9-48fc-a1a9-da870dc4d37d-profile_image-300x300.png)|
+| ![Koiwhyy](https://static-cdn.jtvnw.net/jtv_user_pictures/83c4f362-4ab0-419c-af6d-9b9f3fedc6c5-profile_image-300x300.png)|
 
 | [Koji_Toshi](https://twitch.tv/Koji_Toshi)  |
 | ----- |
@@ -1499,7 +1499,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | [Kopolit_](https://twitch.tv/Kopolit_)  |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Hejcia ^^ Jestem Kopolit i staram się robić to co kocham. Jestem Vtuberem i kucharzem z zawodu, zazwyczaj gram sobie w gierki rytmiczno-muzyczne bądź rysuję off-stream. Potowarzyszcie mi w drodze do zdobycia 100 followków ^^ Lofki &lt;3 </span> |
+| <span>Hejcia ^^ Jestem Kopolit i staram się robić to co kocham. Jestem Vtuberem i kucharzem z zawodu, zazwyczaj gram sobie w gierki rytmiczno-muzyczne bądź rysuję off-stream. Potowarzyszcie mi w drodze z karierą streamera  ^^ Lofki &lt;3 </span> |
 | 8.02.2020, 16:15:05 |
 | <strong>[Twitter](https://twitter.com/KopolitPink)  </strong> |
 | ![Kopolit_](https://static-cdn.jtvnw.net/jtv_user_pictures/d089701f-2172-4383-9d94-f504965469bf-profile_image-300x300.jpeg)|
@@ -1519,14 +1519,6 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | 30.04.2020, 21:53:27 |
 | <strong>[Discord](https://discord.com/invite/JJMbsA3trz) [Tiktok](https://www.tiktok.com/@kotekwaxustv) [Youtube](https://www.youtube.com/channel/UCsNl1r0xBwTJy1xYOClPETg) [Instagram](https://www.instagram.com/kotekwaxus_vt/) [Facebook](https://www.facebook.com/kotekwaxus/)  </strong> |
 | ![KotekWaxus](https://static-cdn.jtvnw.net/jtv_user_pictures/92a49c4a-e740-4488-90f4-d3865807a43d-profile_image-300x300.png)|
-
-| [Kotletowaty_](https://twitch.tv/Kotletowaty_)  |
-| ----- |
-| <strong>non affiliate</strong> |
-| <span></span> |
-| 18.12.2019, 23:35:57 |
-| <strong>[Twitter](https://twitter.com/kotletowaty) [Youtube](https://www.youtube.com/channel/UCrlpeJ--5PgKX72rjKWinhw) [Ko-fi](https://ko-fi.com/kotletowaty) [Throne](https://throne.com/kotletowaty)  </strong> |
-| ![Kotletowaty_](https://static-cdn.jtvnw.net/user-default-pictures-uv/215b7342-def9-11e9-9a66-784f43822e80-profile_image-300x300.png)|
 
 | [kozloskaa](https://twitch.tv/kozloskaa)  |
 | ----- |
@@ -1603,13 +1595,6 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>[Twitter](https://twitter.com/Lolitynka) [Youtube](https://www.youtube.com/@Lolitynka)  </strong> |
 | ![L0litynka](https://static-cdn.jtvnw.net/jtv_user_pictures/ed81b934-5b26-4828-9dd3-9efbb6f98cf7-profile_image-300x300.png)|
 
-| [LatiBatti](https://twitch.tv/LatiBatti)  |
-| ----- |
-| <strong>non affiliate</strong> |
-| <span>Super koks, co gra w gierki B)</span> |
-| 11.09.2023, 11:13:26 |
-| ![LatiBatti](https://static-cdn.jtvnw.net/jtv_user_pictures/51f6f316-46e9-44f6-b5d8-bcfd844841d7-profile_image-300x300.png)|
-
 | [lawendowa_](https://twitch.tv/lawendowa_)  |
 | ----- |
 | <strong>affiliate</strong> |
@@ -1624,14 +1609,14 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>Vtuber pół demon który pochodzi z królestwa arkedi </span> |
 | 11.03.2018, 21:28:34 |
 | <strong>[Discord](https://discord.com/channels/757622083252387942/757622083252387946) [Steamcommunity](https://steamcommunity.com/profiles/76561198996075898) [Twitter](https://twitter.com/MamonVtuber) [Tiktok](https://www.tiktok.com/@lazarusvtuber) [Throne](https://throne.com/lazarusvtuber)  </strong> |
-| ![lazarusvtuber](https://static-cdn.jtvnw.net/jtv_user_pictures/9f83334d-6c6e-4fa6-9e29-eb66f00c4da2-profile_image-300x300.png)|
+| ![lazarusvtuber](https://static-cdn.jtvnw.net/jtv_user_pictures/1c7e026f-fce4-438d-b16e-90c3eecd7021-profile_image-300x300.png)|
 
 | [Leafurin](https://twitch.tv/Leafurin)  |
 | ----- |
 | <strong>affiliate</strong> |
 | <span>Hejka! Nazywam się Leafurin, można mówić do mnie Liściu/Liściuwa~ Gram w gierki, rysuję i czasem powiem coś śmiesznego 	(´ ∀ ` *)</span> |
 | 13.03.2021, 01:01:42 |
-| <strong>[Twitter](https://twitter.com/LeafurinVT) [Vgen](https://vgen.co/leafurin) [Store.steampowered](https://store.steampowered.com/wishlist/id/leafuru/#sort=order)  </strong> |
+| <strong>[Twitter](https://twitter.com/LeafurinVT) [Vgen](https://vgen.co/leafurin) [Store.steampowered](https://store.steampowered.com/wishlist/id/leafuru/#sort=order) [Ko-fi](https://ko-fi.com/leafurin)  </strong> |
 | ![Leafurin](https://static-cdn.jtvnw.net/jtv_user_pictures/b6ca2b86-ddaa-4a24-bf00-81b32210baec-profile_image-300x300.png)|
 
 | [Leegon3](https://twitch.tv/Leegon3)  |
@@ -1645,10 +1630,10 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | [LEEKRiSSU](https://twitch.tv/LEEKRiSSU)  |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>FiNALLY BACK iN CORGONiA!     YEAR: ?¿UNKNOWN¿?[-Streaming ASMR at the Week & Chaos on Weekends!-]</span> |
+| <span>FiNALLY BACK iN CORGONiA!     YEAR: ?¿UNKNOWN¿?[-Streaming ASMR & Chaos-]</span> |
 | 6.05.2020, 13:58:45 |
 | <strong>[Twitter](https://twitter.com/krissu_lee) [Instagram](https://www.instagram.com/leekrissu_/) [Discord](https://discord.gg/eXcQE8pWJf) [Youtube](https://www.youtube.com/channel/UCoxXlTeKl7FblmR01j3ORSg) [Leekrissu.carrd](https://leekrissu.carrd.co/)  </strong> |
-| ![LEEKRiSSU](https://static-cdn.jtvnw.net/jtv_user_pictures/3d083b03-b37a-48ae-8e7c-13ea8456d9b9-profile_image-300x300.png)|
+| ![LEEKRiSSU](https://static-cdn.jtvnw.net/jtv_user_pictures/f8f6e1ea-7d81-48ec-a5ed-e92cf1cf4782-profile_image-300x300.png)|
 
 | [Lenilack](https://twitch.tv/Lenilack)  |
 | ----- |
@@ -1741,7 +1726,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>affiliate</strong> |
 | <span>So basically I'm a Peacock Vtuber, feel free to call me Taus. I have more colors on me than brain cells but I'm trying to deliver you some nice and comfy space combined with some spicy and stupid jokes. </span> |
 | 12.01.2021, 22:52:26 |
-| <strong>[Twitter](https://twitter.com/Lord_Taus) [Discord](https://discord.gg/7Khm6eyVUf) [Tipo](https://tipo.live/p/lordtaus)  </strong> |
+| <strong>[Twitter](https://twitter.com/Lord_Taus) [Discord](https://discord.gg/7Khm6eyVUf) [Tipo](https://tipo.live/p/lordtaus) [Ko-fi](https://ko-fi.com/lordtaus)  </strong> |
 | ![Lord_Taus](https://static-cdn.jtvnw.net/jtv_user_pictures/926250ed-a79d-4b31-b49b-76351542b797-profile_image-300x300.png)|
 
 | [Lubomirke](https://twitch.tv/Lubomirke)  |
@@ -1801,7 +1786,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 
 | [marmozjad](https://twitch.tv/marmozjad)  |
 | ----- |
-| <strong>non affiliate</strong> |
+| <strong>affiliate</strong> |
 | <span>Chodźcie do mojego śmietnika. Powitam was ciepłą herbatką, kawusią może nawet znajdzie się kawałek picki a może nawet pluszowy dinozaur! Mam też zabawki sensoryczne muahahaha. Czasami gryzę, ale tylko jak ruszacie moje kamienie, moje rzeczy bez pytania i mych kunsztownych przyjaciół &gt;:3</span> |
 | 10.06.2019, 00:52:33 |
 | <strong>[Discord](https://discord.com/channels/696298182136561685/1094619342517321779/1123754937764028476) [Twitter](https://twitter.com/marmozjadvt)  </strong> |
@@ -1921,7 +1906,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | [mikuliauwu](https://twitch.tv/mikuliauwu)  |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Jestem Mikulia - początkująca vtuberka, która dostarczy Ci sporo rozrywki! Ze mną na pewno porozmawiasz i się uśmiechniesz. Zobaczysz też jak intuję gierki albo jestem mvp (to zależy, hehe). Bardzo się staram, żeby było fajnie. Zapraszam na streamki! Przywitaj się ze mną - będzie mi mega miło 💖</span> |
+| <span>Jestem Mikulia - vtuberka, która dostarczy Ci sporo rozrywki! Bardzo się staram, żeby było fajnie. Zapraszam na streamki! Miło mi Cię poznać 💖</span> |
 | 13.10.2018, 22:14:00 |
 | <strong>[Instagram](https://www.instagram.com/mikuliauwu/) [Youtube](https://www.youtube.com/channel/UC3VOpCXdaQECR5YdY8JXKHQ)  </strong> |
 | ![mikuliauwu](https://static-cdn.jtvnw.net/jtv_user_pictures/7a60dbf4-7c6b-4562-be8e-cffc2788a009-profile_image-300x300.png)|
@@ -1972,13 +1957,6 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | 15.08.2019, 15:01:23 |
 | <strong>[Twitter](https://twitter.com/_Mirun_a) [Instagram](https://www.instagram.com/mirun_e/) [Toyhou](https://toyhou.se/Mirun)  </strong> |
 | ![Mirune](https://static-cdn.jtvnw.net/jtv_user_pictures/41059dd6-1b96-4454-b5b2-d328825e031a-profile_image-300x300.png)|
-
-| [misato_neko](https://twitch.tv/misato_neko)  |
-| ----- |
-| <strong>non affiliate</strong> |
-| <span>✧ Kicia Vtuber ✧ </span> |
-| 22.01.2020, 22:05:01 |
-| ![misato_neko](https://static-cdn.jtvnw.net/jtv_user_pictures/d042784e-5f71-4ae5-8277-81d27ea626a3-profile_image-300x300.png)|
 
 | [MisieQtaz](https://twitch.tv/MisieQtaz)  |
 | ----- |
@@ -2051,13 +2029,13 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>[Tipo](https://tipo.live/p/mizuwake)  </strong> |
 | ![MizuWake](https://static-cdn.jtvnw.net/jtv_user_pictures/faef0a95-eb21-41ac-ae7b-e12c376383c3-profile_image-300x300.png)|
 
-| [Monagi](https://twitch.tv/Monagi)  |
+| [monashii_](https://twitch.tv/monashii_)  |
 | ----- |
 | <strong>affiliate</strong> |
 | <span>Yoo  ˗ˏˋ˖ ✦ ☪︎ ✦ ˖ˎˊ˗   </span> |
 | 20.02.2016, 19:34:44 |
 | <strong>[Discord](https://discord.gg/u7aZhsdEJB) [Youtube](https://www.youtube.com/channel/UCbEeFO7alFI4VwGEpTQ4_9g) [Twitter](https://twitter.com/Monashiime) [Tiktok](https://www.tiktok.com/@xmonashi)  </strong> |
-| ![Monagi](https://static-cdn.jtvnw.net/jtv_user_pictures/5edf719c-5efe-4e8b-851e-42897f95771d-profile_image-300x300.png)|
+| ![monashii_](https://static-cdn.jtvnw.net/jtv_user_pictures/1e05c2ec-5a1f-4423-80ae-b1f150401ece-profile_image-300x300.png)|
 
 | [Morgeins](https://twitch.tv/Morgeins)  |
 | ----- |
@@ -2065,7 +2043,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>๖̶̶̶ζ͜͡Morgeins Le Fay ✝ Vampire Prince ✝ Tarot Boy ✝ Rasowy scream boy i fan wielu gier ✝ Chodź dołącz do Sabatu i zaznaj wszechobecną nienawiść, śmierć i rosnący koliander ღ「✦ 𝗣𝗟 𝗩𝗧𝗨𝗕𝗘𝗥 ✦」</span> |
 | 31.03.2016, 21:20:02 |
 | <strong>[Twitter](https://twitter.com/morgeins) [Discord](https://discord.gg/MYSNV7p8VC) [Tiktok](https://www.tiktok.com/@morgeins) [Tipo](https://tipo.live/p/morgeins)  </strong> |
-| ![Morgeins](https://static-cdn.jtvnw.net/jtv_user_pictures/fb2fa689-cb3c-4cda-a578-5750aae98745-profile_image-300x300.png)|
+| ![Morgeins](https://static-cdn.jtvnw.net/jtv_user_pictures/1b953779-0d59-4712-8e2c-f94f06d16785-profile_image-300x300.jpeg)|
 
 | [mori_yami](https://twitch.tv/mori_yami)  |
 | ----- |
@@ -2090,6 +2068,14 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | 22.02.2021, 07:04:34 |
 | <strong>[Discord](https://discord.gg/yjUYQJef4P) [Twitter](https://twitter.com/morrinyahVT) [Ko-fi](https://ko-fi.com/morrinyah)  </strong> |
 | ![morrinyah](https://static-cdn.jtvnw.net/jtv_user_pictures/3866b885-1af0-496d-8153-f0ac2c607679-profile_image-300x300.jpeg)|
+
+| [MrDesu_](https://twitch.tv/MrDesu_)  |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>Desu |30| Gamer/Cosplayer. Gram we wszystko i nic.</span> |
+| 14.02.2022, 16:12:00 |
+| <strong>[Tipply](https://tipply.pl/@MrDesu_) [Discord](https://discord.gg/sDztjQdRN6) [Twitter](https://twitter.com/MrDesu_) [Instagram](https://www.instagram.com/mrdesu_/) [Tiktok](https://www.tiktok.com/@mrdesu_)  </strong> |
+| ![MrDesu_](https://static-cdn.jtvnw.net/jtv_user_pictures/87fcbaa7-ea91-4184-9076-f1cdc70d630e-profile_image-300x300.png)|
 
 | [mrhappy991](https://twitch.tv/mrhappy991)  |
 | ----- |
@@ -2122,13 +2108,13 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>[Twitter](https://twitter.com/ruru_watermelon) [Throne](https://throne.me/u/ruru) [Ko-fi](https://ko-fi.com/rurumelon) [Discord](https://discord.gg/N6wsDGtScU)  </strong> |
 | ![mruru_chan](https://static-cdn.jtvnw.net/jtv_user_pictures/b5a06d2d-e2ff-4683-a73b-31dd2e7700c0-profile_image-300x300.png)|
 
-| [MsKitty_VT](https://twitch.tv/MsKitty_VT)  |
+| [mskitty_tv](https://twitch.tv/mskitty_tv)  |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Hej Wszystkim! 🌸Jestem MsKitty która umili wam dzień i zagwarantuje że miło spędzicie czas oglądając streamy! 💜Często gram w Genshina oraz denerwuje sie w Lolu</span> |
+| <span>Hej Wszystkim! 🌸Jestem MsKitty  zagwarantuje że miło spędzicie czas oglądając streamy! 💜Gr w różne gierki najczęściej można zobaczyć jak denerwuje się w lolu  </span> |
 | 2.02.2019, 15:43:10 |
-| <strong>[Instagram](https://www.instagram.com/trishha_j/) [Tipply](https://tipply.pl/u/trishha) [Discord](https://discord.gg/HJX6ussyCV) [Youtube](https://www.youtube.com/@MsKitty_VT) [Twitter](https://twitter.com/MsKitty_VT)  </strong> |
-| ![MsKitty_VT](https://static-cdn.jtvnw.net/jtv_user_pictures/4efcdfeb-5c23-4074-93b2-52c4e5cb1358-profile_image-300x300.png)|
+| <strong>[Instagram](https://www.instagram.com/trishha_j/) [Tipply](https://tipply.pl/u/trishha) [Discord](https://discord.gg/HJX6ussyCV) [Youtube](https://www.youtube.com/@MsKitty_VT) [Twitter](https://twitter.com/MsKitty_tv)  </strong> |
+| ![mskitty_tv](https://static-cdn.jtvnw.net/jtv_user_pictures/74b7d7a6-da05-4fa6-a549-1b3eb73d17dd-profile_image-300x300.png)|
 
 | [Mukuro100](https://twitch.tv/Mukuro100)  |
 | ----- |
@@ -2163,11 +2149,11 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 
 | [NamelessNox_](https://twitch.tv/NamelessNox_)  |
 | ----- |
-| <strong>non affiliate</strong> |
+| <strong>affiliate</strong> |
 | <span>Cześć, jestem Nox! Głównie (czyli nie tylko!) gram w horrory i FPSy, przy tym świetnie się bawiąc. Jeśli lubisz Lethal Company, Phasmophobię, Call of Duty czy Avatara - świetnie trafił*ś! To co, zagramy w coś? #dlafabuły</span> |
 | 10.10.2023, 16:30:20 |
 | <strong>[Twitter](https://twitter.com/_noxgabriel) [Instagram](https://www.instagram.com/commander.nox) [Tiktok](https://www.tiktok.com/@noxp0x)  </strong> |
-| ![NamelessNox_](https://static-cdn.jtvnw.net/jtv_user_pictures/28a333e9-63a3-45f0-b6d5-fadff5a23199-profile_image-300x300.png)|
+| ![NamelessNox_](https://static-cdn.jtvnw.net/jtv_user_pictures/84d7b1d1-818b-4781-b81e-eed1f3d28b83-profile_image-300x300.png)|
 
 | [NameLuuxik](https://twitch.tv/NameLuuxik)  |
 | ----- |
@@ -2228,7 +2214,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | [Neikosun](https://twitch.tv/Neikosun)  |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Trafiłeś właśnie na młodą i niezbyt rozgarniętą Władczynie Słońca. Przejdź z nami na jasną stronę mocy.</span> |
+| <span>Trafiłeś właśnie na młodą i niezbyt rozgarniętą Władczynie Słońca (albo kaczkę). Przejdź z nami na jasną stronę mocy.</span> |
 | 1.03.2021, 18:21:17 |
 | <strong>[Tiktok](https://www.tiktok.com/@neikosun) [Discord](https://discord.gg/XugDdcmrmD)  </strong> |
 | ![Neikosun](https://static-cdn.jtvnw.net/jtv_user_pictures/f7a6f792-466a-4e67-8aa7-d2cf18064fbe-profile_image-300x300.png)|
@@ -2240,6 +2226,14 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | 12.10.2014, 15:08:44 |
 | <strong>[Twitter](https://twitter.com/NekoTheCat__) [Discord](https://discord.gg/G8qE3DcnVK)  </strong> |
 | ![NekoTheCatx3](https://static-cdn.jtvnw.net/jtv_user_pictures/6366bbd0-8c4b-42a5-bb1d-ece8b0d4ef20-profile_image-300x300.png)|
+
+| [nelielvt](https://twitch.tv/nelielvt)  |
+| ----- |
+| <strong>affiliate</strong> |
+| <span>Hejka! Jestem Nikola, mała streamerka z chorym poczuciem humoru. Wielbicielka pokemonów, azjatyckiej kultury i muzyki. Mam nadzieję że będziemy się razem dobrze bawić ;3</span> |
+| 14.01.2016, 19:24:02 |
+| <strong>[Discord](https://discord.gg/W6nksUDkmN) [Twitter](https://twitter.com/queen_nikolcia)  </strong> |
+| ![nelielvt](https://static-cdn.jtvnw.net/jtv_user_pictures/59244622-ba19-49f5-bc21-7c75593cc762-profile_image-300x300.png)|
 
 | [NeoHyugaVT](https://twitch.tv/NeoHyugaVT)  |
 | ----- |
@@ -2254,7 +2248,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>affiliate</strong> |
 | <span>Traktuj każdą porażkę jako motywację, aby stawać się lepszą wersją siebie.</span> |
 | 31.10.2021, 10:38:32 |
-| <strong>[Discord](https://discord.gg/SydRe4AKEt) [Picarto](https://picarto.tv/NeoNTeTriX) [Instagram](https://www.instagram.com/neontetrix/) [Twitter](https://twitter.com/NeoNTeTriX) [Toyhou](https://toyhou.se/NeoNTeTriX/characters)  </strong> |
+| <strong>[Discord](https://discord.gg/SydRe4AKEt) [Linktr](https://linktr.ee/NeoNTeTriX) [Sites.google](https://sites.google.com/view/neontetrix/przyk%C5%82adowe-arty) [Toyhou](https://toyhou.se/NeoNTeTriX/characters) [Picarto](https://picarto.tv/NeoNTeTriX)  </strong> |
 | ![NeoN_TeTriX](https://static-cdn.jtvnw.net/jtv_user_pictures/c352f837-d607-4aec-af5a-dd3fb34c810e-profile_image-300x300.png)|
 
 | [NezumiKumomi](https://twitch.tv/NezumiKumomi)  |
@@ -2267,11 +2261,11 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 
 | [Nianshie](https://twitch.tv/Nianshie)  |
 | ----- |
-| <strong>non affiliate</strong> |
+| <strong>affiliate</strong> |
 | <span>Po wielu próbach przejścia do naszego świata ziemskiego ✗ Bóg Nian ✗ ze świata równoległego przyjmuje ludzko podobne formy by co nazywają ludzie rozrywką odnaleźć spokój i odpoczynek od swojej Roli w świecie pierwotnym. Poznaje świat Gacha...</span> |
 | 5.03.2016, 19:35:27 |
 | <strong>[Youtube](https://www.youtube.com/@Nianshie) [Twitter](https://twitter.com/Nianshie_TTV)  </strong> |
-| ![Nianshie](https://static-cdn.jtvnw.net/jtv_user_pictures/d23fed7b-33e5-45ca-ac77-1192b5cc67eb-profile_image-300x300.png)|
+| ![Nianshie](https://static-cdn.jtvnw.net/jtv_user_pictures/fce5efd1-97b9-4d0f-bc81-2c135f37faa0-profile_image-300x300.png)|
 
 | [nightmareDeroo](https://twitch.tv/nightmareDeroo)  |
 | ----- |
@@ -2280,14 +2274,6 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | 3.05.2016, 12:34:10 |
 | <strong>[Twitter](https://twitter.com/nightmareDeroo) [Discord](https://discord.com/invite/6nSdDkUMrb)  </strong> |
 | ![nightmareDeroo](https://media.discordapp.net/attachments/989095141874749470/1162038917915234334/image.png)|
-
-| [nikolciavt](https://twitch.tv/nikolciavt)  |
-| ----- |
-| <strong>affiliate</strong> |
-| <span>Hejka! Jestem Nikola, mała streamerka z chorym poczuciem humoru. Wielbicielka pokemonów, azjatyckiej kultury i muzyki. Mam nadzieję że będziemy się razem dobrze bawić ;3</span> |
-| 14.01.2016, 19:24:02 |
-| <strong>[Discord](https://discord.gg/W6nksUDkmN) [Twitter](https://twitter.com/queen_nikolcia)  </strong> |
-| ![nikolciavt](https://static-cdn.jtvnw.net/jtv_user_pictures/5480d06a-22e4-4571-8def-30b40d1b1327-profile_image-300x300.png)|
 
 | [Nishi_Yuuma](https://twitch.tv/Nishi_Yuuma) **He/Him** |
 | ----- |
@@ -2337,13 +2323,13 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>[Discord](https://discord.gg/grN7xg4N9U) [Tiktok](https://www.tiktok.com/@nyxiiiavt) [Twitter](https://twitter.com/Nyxiiiavtube) [Youtube](https://www.youtube.com/channel/UCSmT0EYckCbdKHwSSmmtNVA) [Linktr](https://linktr.ee/nyxiiia)  </strong> |
 | ![Nyxiiia](https://static-cdn.jtvnw.net/jtv_user_pictures/cf62b232-b034-4e88-b5f8-62639066f90d-profile_image-300x300.jpeg)|
 
-| [offro_vt](https://twitch.tv/offro_vt)  |
+| [offro_](https://twitch.tv/offro_)  |
 | ----- |
 | <strong>affiliate</strong> |
 | <span>Heeejka zagubiona duszyczko! Naprawdę miło jest mi cie tu dziś móc ugościć! Mamy wolne miejsca także śmiało rozsiądź się wygodnie, złap przekąski i życzę miłego seansu! Możesz doświadczyć mojego powolnego upadku w szaleństwo...</span> |
 | 2.12.2017, 01:12:08 |
 | <strong>[Discord](https://discord.gg/K23ZJMQSzx) [X](https://x.com/OffroVT_?s=09) [Tiktok](https://www.tiktok.com/@offro_?_t=8f29h9OnJRp&_r=1)  </strong> |
-| ![offro_vt](https://static-cdn.jtvnw.net/jtv_user_pictures/5816c702-a591-46d4-a846-a7e451edcebe-profile_image-300x300.jpeg)|
+| ![offro_](https://static-cdn.jtvnw.net/jtv_user_pictures/5816c702-a591-46d4-a846-a7e451edcebe-profile_image-300x300.jpeg)|
 
 | [oHideko](https://twitch.tv/oHideko)  |
 | ----- |
@@ -2359,7 +2345,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>wip</span> |
 | 30.08.2020, 15:52:19 |
 | <strong>[Twitter](https://twitter.com/okaree__) [Discord](https://discord.gg/9DAHEjb9FA) [Tiktok](https://www.tiktok.com/@okaree__) [Youtube](https://www.youtube.com/@okaree_)  </strong> |
-| ![okaree](https://static-cdn.jtvnw.net/jtv_user_pictures/85218c3f-f5ea-48f1-99fd-d02f4c45172a-profile_image-300x300.png)|
+| ![okaree](https://static-cdn.jtvnw.net/jtv_user_pictures/c4356b75-ba79-4d69-914e-a852f01bd958-profile_image-300x300.png)|
 
 | [olsabolla](https://twitch.tv/olsabolla)  |
 | ----- |
@@ -2406,20 +2392,20 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>Polska to moje isekai. Próbuje tu przeżyć ;-; Moje hobby to gry i praca za najniższą krajową. </span> |
 | 4.09.2021, 20:15:19 |
 | <strong>[Twitter](https://twitter.com/WielkiePande) [Discord](https://discord.gg/PEEZdpebzv)  </strong> |
-| ![pandwielka](https://static-cdn.jtvnw.net/jtv_user_pictures/65e9e180-7ef9-4f17-9b8b-bb202042396d-profile_image-300x300.png)|
+| ![pandwielka](https://static-cdn.jtvnw.net/jtv_user_pictures/33afb99f-d647-4f48-b005-e9dba5ea1955-profile_image-300x300.png)|
 
 | [paprikooooo](https://twitch.tv/paprikooooo)  |
 | ----- |
 | <strong>affiliate</strong> |
 | <span>Może jeszcze kiedyś będą streamy</span> |
 | 17.01.2022, 03:02:50 |
-| <strong>[Twitter](https://twitter.com/paprikoooo?t=LFbj2tQD459ldfdimbk4CA&s=07) [Streamlabs](https://streamlabs.com/paprikooooo/tip) [Discord](https://discord.gg/xRPc5uTg2u)  </strong> |
+| <strong>[Twitter](https://twitter.com/paprikoooo?t=LFbj2tQD459ldfdimbk4CA&s=07) [Streamlabs](https://streamlabs.com/paprikooooo/tip)  </strong> |
 | ![paprikooooo](https://static-cdn.jtvnw.net/jtv_user_pictures/9135c787-5ff6-4e0c-8328-7e6f1e350947-profile_image-300x300.png)|
 
 | [PavlitoVT](https://twitch.tv/PavlitoVT)  |
 | ----- |
 | <strong>non affiliate</strong> |
-| <span>Generalnie to sobie tu streamuje i się głównie nudzę </span> |
+| <span>No cześć ja jestem Pavlito i generalnie ciężko mi pisać o sobie, ale się postaram. Generalnie to jestem nowy w świecie Vtuba. głównie żeby po prostu porozmawiać z ludźmi w trakcie graniaModel przedstawia moją OC'ke wykonaną przez Intarte (Niestety na ten moment postać nie posiada swojego lore) </span> |
 | 1.02.2019, 22:09:48 |
 | ![PavlitoVT](https://static-cdn.jtvnw.net/jtv_user_pictures/40acca54-2739-445f-b65c-f5eaf07a028e-profile_image-300x300.png)|
 
@@ -2451,7 +2437,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>non affiliate</strong> |
 | <span>yo, jestem piotyr, gram w stare gry lub jakieś indyki. wpadnij się przywitać. </span> |
 | 9.06.2019, 17:36:49 |
-| <strong>[Youtube](https://www.youtube.com/channel/UC4JezkkUf5g7R3FQaWhsQhw) [Twitter](https://twitter.com/Piotyr1)  </strong> |
+| <strong>[Discord](https://discord.gg/VmS5K2Qn) [Youtube](https://www.youtube.com/channel/UC4JezkkUf5g7R3FQaWhsQhw) [Twitter](https://twitter.com/Piotyr1)  </strong> |
 | ![piotyr_tyrantyr](https://static-cdn.jtvnw.net/jtv_user_pictures/5d03b307-9197-42fa-b7d7-becaab432805-profile_image-300x300.png)|
 
 | [plum_meowVT](https://twitch.tv/plum_meowVT)  |
@@ -2560,7 +2546,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>Casual player cieszący się z każdej fajnej akcji i prowadzący streamy 4fun :D</span> |
 | 18.11.2018, 17:03:17 |
 | <strong>[Youtube](https://www.youtube.com/channel/UC7dYFafeOr94jaCCK2SjRhQ) [Twitter](https://twitter.com/rapaceis) [Tiktok](https://www.tiktok.com/@rapaceis)  </strong> |
-| ![Rapaceis](https://static-cdn.jtvnw.net/jtv_user_pictures/c2d615c4-3d6b-4c7e-b87e-f215f6dc7642-profile_image-300x300.png)|
+| ![Rapaceis](https://static-cdn.jtvnw.net/jtv_user_pictures/c7317012-aba4-41ea-bdb1-bf965fb65133-profile_image-300x300.png)|
 
 | [Raven_Ch](https://twitch.tv/Raven_Ch)  |
 | ----- |
@@ -2643,11 +2629,11 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 
 | [Rysiam](https://twitch.tv/Rysiam)  |
 | ----- |
-| <strong>non affiliate</strong> |
+| <strong>affiliate</strong> |
 | <span>Certyfikowany elf 🌿</span> |
 | 5.03.2021, 20:48:44 |
-| <strong>[Twitter](https://twitter.com/Rysiam_)  </strong> |
-| ![Rysiam](https://static-cdn.jtvnw.net/jtv_user_pictures/1bb6dc5a-d50f-426c-a554-7c14720bd9b0-profile_image-300x300.png)|
+| <strong>[Twitter](https://twitter.com/Rysiam_) [Youtube](https://www.youtube.com/@rysiam)  </strong> |
+| ![Rysiam](https://static-cdn.jtvnw.net/jtv_user_pictures/05f5d076-4070-41d5-a6d0-4688d05b4294-profile_image-300x300.png)|
 
 | [saintuspolandus](https://twitch.tv/saintuspolandus)  |
 | ----- |
@@ -2699,7 +2685,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | [scoutylanks](https://twitch.tv/scoutylanks)  |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>kolejna forma eskapizmu. blenduje, bazgram, lubię przygodówki</span> |
+| <span>kolejna forma eskapizmu. Bazgram, robię rzeczy w 3d, lubię przygodówki miau /ᐠ .ᆺ. ᐟ\ﾉ</span> |
 | 28.06.2020, 22:43:59 |
 | <strong>[Instagram](https://www.instagram.com/scoutylanks/) [Twitter](https://twitter.com/scoutylanks)  </strong> |
 | ![scoutylanks](https://media.discordapp.net/attachments/989095141874749470/1165719547253379153/image.png)|
@@ -2749,7 +2735,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>affiliate</strong> |
 | <span>ᕙ✿ᕗ Witam cię ukochana duszyczko w mojej sypialni. Jestem otóż demonicą co egzystuje sobie w świecie ludzkim, dla tego chce cię dzielić sobą. Gwarantuje świetną zabawę i niezapomniane chwile o ile zostaniesz tutaj na dłużej. ᕙ✿ᕗ</span> |
 | 5.07.2021, 20:29:31 |
-| <strong>[Tipply](https://tipply.pl/u/sg_mozzie) [Youtube](https://www.youtube.com/channel/UChToj2pwGnaRRKjoVZAXiAQ) [Discord](https://discord.gg/uWbaA8gRH7)  </strong> |
+| <strong>[Tipply](https://tipply.pl/u/sg_mozzie) [Discord](https://discord.gg/uWbaA8gRH7) [Youtube](https://www.youtube.com/channel/UChToj2pwGnaRRKjoVZAXiAQ)  </strong> |
 | ![Sg_Mozzie](https://static-cdn.jtvnw.net/jtv_user_pictures/80e847fb-474c-4938-9706-0d64ae955640-profile_image-300x300.png)|
 
 | [shaato](https://twitch.tv/shaato)  |
@@ -2844,13 +2830,6 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | 4.08.2023, 18:53:25 |
 | ![SloppySleeperka](https://cdn.discordapp.com/attachments/989095141874749470/1162039789017636944/image.png)|
 
-| [SlothSixSin](https://twitch.tv/SlothSixSin)  |
-| ----- |
-| <strong>non affiliate</strong> |
-| <span>Witajta wszyscy tutaj Sloth. Możecie mówić do mnie Slot lub Wojtek. Mam 24 lata. Jestem graczem i fanem anime. Tak mam model kobity ale jestem normalny :D. Streamuje głównie gry multiplayer ale nie kiedy zdarzą się gierki single. Zapraszam do oglądania , grania i wspólnej rozmowy.</span> |
-| 9.10.2022, 12:33:16 |
-| ![SlothSixSin](https://static-cdn.jtvnw.net/jtv_user_pictures/fd410bb2-c670-4010-8e5c-fa7effd7bd61-profile_image-300x300.png)|
-
 | [Smiejkaa](https://twitch.tv/Smiejkaa)  |
 | ----- |
 | <strong>affiliate</strong> |
@@ -2936,7 +2915,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>affiliate</strong> |
 | <span>Twój ulubiony zadymiarz Vtuber.                                                                                                                                              Kontakt: @strixboi || strixboi.dev@gmail.com</span> |
 | 29.12.2016, 10:13:51 |
-| <strong>[Twitter](https://twitter.com/strixboi) [Discord](https://discord.com/invite/QXCBhfWnc5) [Youtube](https://www.youtube.com/c/Strixboi)  </strong> |
+| <strong>[Twitter](https://twitter.com/strixboi) [Discord](https://discord.com/invite/R9X5tN8cZa) [Youtube](https://www.youtube.com/c/Strixboi)  </strong> |
 | ![Strix_Kappa](https://static-cdn.jtvnw.net/jtv_user_pictures/47a1656c-c5ce-46e3-8ac0-b5da92f15d08-profile_image-300x300.png)|
 
 | [Sulni_](https://twitch.tv/Sulni_)  |
@@ -3010,14 +2989,6 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | 1.08.2018, 13:38:21 |
 | <strong>[Tipo](https://tipo.live/p/takumidaze) [Discord](https://discord.gg/vgFs3bXjgg) [Twitter](https://twitter.com/TakumidazeVT)  </strong> |
 | ![takumidaze](https://static-cdn.jtvnw.net/jtv_user_pictures/f626b9ec-b59c-4372-9457-689bd3d57492-profile_image-300x300.png)|
-
-| [tamae_](https://twitch.tv/tamae_)  |
-| ----- |
-| <strong>partner</strong> |
-| <span>Tamae | Variety Streamer | Gracz, fan horrorów i trudnych/wkurzających gier, może kiedyś voice actor, a na ten moment zawodowy głupek | Wpadaj i baw się dobrze na streamie!</span> |
-| 15.08.2021, 03:28:54 |
-| <strong>[Youtube](https://www.youtube.com/@Tamae_) [Twitter](https://twitter.com/YourFriendTamae) [Instagram](https://www.instagram.com/tamae_0/)  </strong> |
-| ![tamae_](https://static-cdn.jtvnw.net/jtv_user_pictures/7af338c0-0c16-4779-883d-d230945c8e9b-profile_image-300x300.png)|
 
 | [Taoreta_Makoto](https://twitch.tv/Taoreta_Makoto)  |
 | ----- |
@@ -3094,7 +3065,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>affiliate</strong> |
 | <span>Siemka jestem TOAXEIC ale możecie mi mówic chmurcia albo karota.jestem króliczym zjebem, który gra, rysuje i słucha discopolo (po czym dostaje copyright strike)zapraszam do about me for more!</span> |
 | 6.08.2017, 22:08:50 |
-| <strong>[Tipply](https://tipply.pl/@toaxeic) [Twitter](https://twitter.com/TOAXEIC) [Tiktok](https://www.tiktok.com/@toaxeic)  </strong> |
+| <strong>[Twitter](https://twitter.com/TOAXEIC) [Tiktok](https://www.tiktok.com/@toaxeic) [Discord](https://discord.gg/ZPXwb2xnkU)  </strong> |
 | ![TOAXEIC](https://static-cdn.jtvnw.net/jtv_user_pictures/37c23b55-f21d-4cf5-90f0-ab439a7775fd-profile_image-300x300.png)|
 
 | [torbi3l](https://twitch.tv/torbi3l)  |
@@ -3143,7 +3114,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>Polski Vtuber grający za dużo w jrpgi oraz gadający za dużo oglądając filmy</span> |
 | 28.10.2022, 19:53:20 |
 | <strong>[Youtube](https://www.youtube.com/channel/UCS6Q93wOxqAAtLEjg5Q6afQ) [Twitter](https://twitter.com/Bard_Tukk) [Discord](https://discord.gg/eT8EUYzhj9)  </strong> |
-| ![TukkTheBard](https://static-cdn.jtvnw.net/jtv_user_pictures/1f1b7946-29b7-4780-b17c-055f0d7e71e3-profile_image-300x300.png)|
+| ![TukkTheBard](https://static-cdn.jtvnw.net/jtv_user_pictures/3d055342-1179-4227-b737-47b3e09e2cf0-profile_image-300x300.png)|
 
 | [Tunrunn](https://twitch.tv/Tunrunn)  |
 | ----- |
@@ -3188,9 +3159,9 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | [UrSusel](https://twitch.tv/UrSusel)  |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Hewo wam. Jestem Susel i jestem oto ten człowieko-lis streamer, choć nie streamuje za często to staram się polepszać wam humor! Życzę wam wspaniałych transmisji!</span> |
+| <span>Helooooooo, I am fox-human vtuber! It's nice to meet ya. I am a small streamer but I try making my best to put a smile on everyone's face! I hope you'll enjoy the stream!</span> |
 | 8.01.2020, 22:31:37 |
-| <strong>[Youtube](https://www.youtube.com/channel/UCz4Iq4USxaySD_SNAZXgihQ/videos) [Discord](https://discord.gg/ATetf7BM8r) [Twitter](https://twitter.com/UrSusel) [Streamelements](https://streamelements.com/ursusel_/tip) [Merch.streamelements](https://merch.streamelements.com/wsciekly_susel)  </strong> |
+| <strong>[Discord](https://discord.gg/ATetf7BM8r) [Twitter](https://twitter.com/UrSusel) [Streamelements](https://streamelements.com/ursusel_/tip) [Merch.streamelements](https://merch.streamelements.com/wsciekly_susel) [Youtube](https://www.youtube.com/channel/UCz4Iq4USxaySD_SNAZXgihQ/videos)  </strong> |
 | ![UrSusel](https://static-cdn.jtvnw.net/jtv_user_pictures/bbe23634-e738-4c9a-a8f5-15ce76f1d49e-profile_image-300x300.png)|
 
 | [Usagi_Chin](https://twitch.tv/Usagi_Chin)  |
@@ -3270,7 +3241,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>I am Vidm0, I'm a vtuber, and I like FPS, and racing gamesSocials: https://linktr.ee/vidm0</span> |
 | 16.10.2021, 22:48:12 |
 | <strong>[Twitter](https://twitter.com/NaG_Vidm0?t=vpHoWQ3i-lLGizk6N2LHng&s=09) [Youtube](https://youtube.com/channel/UCyi-ciUU0e5-Y0QiuAl9qrg)  </strong> |
-| ![Vldm0](https://static-cdn.jtvnw.net/jtv_user_pictures/509afc51-0929-4945-bee1-b8bdfa166384-profile_image-300x300.jpeg)|
+| ![Vldm0](https://static-cdn.jtvnw.net/jtv_user_pictures/295b3948-3875-4c72-adf3-b9855b33638f-profile_image-300x300.png)|
 
 | [VRTaika](https://twitch.tv/VRTaika) **She/They** |
 | ----- |
@@ -3285,7 +3256,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>affiliate</strong> |
 | <span>✿ Jestem NekoNeta ✿ Noob ✿ Princesa Cringu ✿ I have only one brain cell ✿ Klnę jak Twój stary po wywiadówce ✿ Gram w rożne gry ✿ Głównie horrory i jakieś mniejsze produkcje typu cozy lub trochę mniej cozy lub o japierdolę ginę co chwilę ✿ Miłego oglądania jak się męczę! (=🝦 ༝ 🝦=) 18+✿ </span> |
 | 27.08.2023, 21:55:17 |
-| <strong>[Tiktok](https://www.tiktok.com/@vtnekoneta) [Twitter](https://twitter.com/VTNekoNeta) [Discord](https://discord.gg/pwVDcmAY6q)  </strong> |
+| <strong>[Tiktok](https://www.tiktok.com/@vtnekoneta) [Twitter](https://twitter.com/VTNekoNeta) [Discord](https://discord.gg/HtBuZ6md4j)  </strong> |
 | ![VTNekoNeta](https://static-cdn.jtvnw.net/jtv_user_pictures/b467bac2-5415-41aa-9b72-8532ab51e35d-profile_image-300x300.jpeg)|
 
 | [vtsina](https://twitch.tv/vtsina)  |
@@ -3505,13 +3476,13 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <strong>[Discord](https://discord.gg/p4eNsrTtn2) [Twitter](https://twitter.com/YumenoKira1)  </strong> |
 | ![YumenoKira](https://static-cdn.jtvnw.net/jtv_user_pictures/44bf0945-8039-436b-8ce0-e38984e7b120-profile_image-300x300.png)|
 
-| [Yumiyo_official](https://twitch.tv/Yumiyo_official)  |
+| [Yumiyo_vt](https://twitch.tv/Yumiyo_vt)  |
 | ----- |
 | <strong>non affiliate</strong> |
 | <span>hejo gram w gry bo tak :)</span> |
 | 27.10.2019, 16:12:15 |
 | <strong>[Youtube](https://www.youtube.com/channel/UCeqSsnAaC-_ALe9Nmm_XPfA)  </strong> |
-| ![Yumiyo_official](https://static-cdn.jtvnw.net/jtv_user_pictures/625bdb29-b0b9-4d94-8c8b-66d567a6b744-profile_image-300x300.jpeg)|
+| ![Yumiyo_vt](https://static-cdn.jtvnw.net/jtv_user_pictures/625bdb29-b0b9-4d94-8c8b-66d567a6b744-profile_image-300x300.jpeg)|
 
 | [Yuriko_Moji](https://twitch.tv/Yuriko_Moji)  |
 | ----- |
@@ -3531,10 +3502,10 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | [YuuKitsu](https://twitch.tv/YuuKitsu)  |
 | ----- |
 | <strong>affiliate</strong> |
-| <span>Bawię się w VTubera i tyle w sumie, dużo drę ryja mimo że nie musze.</span> |
+| <span>Zniknęłam na jakiś czas ale niebawem wrócę, wyjaśnienia na moim Discordzie || Bawię się w VTubera i tyle w sumie, dużo drę ryja mimo że nie musze.</span> |
 | 2.09.2023, 00:05:36 |
 | <strong>[Tiktok](https://www.tiktok.com/@yuukitsux?_t=8fprwf4rlsa&_r=1) [Discord](https://discord.gg/sPV3xnBsus) [Youtube](https://www.youtube.com/channel/UCl8sA3KF6K1wUlV-UZ5tL1w)  </strong> |
-| ![YuuKitsu](https://static-cdn.jtvnw.net/jtv_user_pictures/12fe06c5-4944-46cd-984f-c248b8435ae9-profile_image-300x300.png)|
+| ![YuuKitsu](https://static-cdn.jtvnw.net/jtv_user_pictures/516ee9b6-5257-4aa7-babd-eef52be44ec0-profile_image-300x300.jpeg)|
 
 | [zenek_kun](https://twitch.tv/zenek_kun)  |
 | ----- |
