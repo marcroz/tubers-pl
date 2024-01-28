@@ -2916,7 +2916,7 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>Możecie do mnie mówić Ciocia Spiryt (｡^౪^｡)</span> |
 | 16.10.2012, 21:28:10 |
 | <strong>[Tipply](https://tipply.pl/u/spirit932)  </strong> |
-| ![Spirytka](https://static-cdn.jtvnw.net/jtv_user_pictures/d6757bd9-8005-4531-b2bb-891277d65154-profile_image-300x300.jpeg)|
+| ![Spirytka](https://cdn.discordapp.com/attachments/989095141874749470/1201259955815207033/image.png)|
 
 | [StarkerSilver](https://twitch.tv/StarkerSilver)  |
 | ----- |
@@ -3360,14 +3360,6 @@ lista składa się z osób które followował użytkownik @Maffcio_(X)/@maffciom
 | <span>Hej jestem polskim vtuberem i mam wilcze uszy. Ogrywam zazwyczaj strategie a czasem strzelanki ale tu bogatej biblioteki nie mam. Amatorem jestem więc wiele ode mnie nie oczekujcie ale jeśli was zaciekawiłem zostawcie followa</span> |
 | 22.12.2016, 18:59:37 |
 | ![WolfMatRek](https://static-cdn.jtvnw.net/jtv_user_pictures/20462ea6-8734-4ef4-b0ba-1a947e0c08ef-profile_image-300x300.png)|
-
-| [WujekBrajan](https://twitch.tv/WujekBrajan)  |
-| ----- |
-| <strong>partner</strong> |
-| <span>hello</span> |
-| 4.02.2019, 16:00:18 |
-| <strong>[Youtube](https://www.youtube.com/channel/UCjnXOUFY5jbGWbsqxANSQRw?view_as=subscriber) [Discord](https://discord.com/invite/JQjBZgq)  </strong> |
-| ![WujekBrajan](https://static-cdn.jtvnw.net/jtv_user_pictures/bdbbf7cd-1cf0-40d5-b8f9-199bd63f1158-profile_image-300x300.png)|
 
 | [xChinczyKK7](https://twitch.tv/xChinczyKK7)  |
 | ----- |
